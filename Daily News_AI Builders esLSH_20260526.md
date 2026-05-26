@@ -1,0 +1,502 @@
+<h1> AI Builders Digest 今日热点快报</h1>
+<p><strong>2026年05月26日 23时30分30秒(UTC+8)</strong></p>
+<hr>
+<h3>庄国栋VS方协文：为什么“霸道总裁”和“经适男”，都不是玫瑰的归宿？</h3>
+<p>
+ | 来源: http://zjkbf.zhijiaow.com/blog/20260526-740.shtml
+</p>
+
+<h3>LV男装秀场上，王嘉尔秒了？</h3>
+<p>
+ | 来源: http://hnxiaoxin.com/blog/20260526-100.shtml
+</p>
+
+<h3>王嘉尔巴黎时装周秀半裸出发图</h3>
+<p>
+ | 来源: http://shengqianhui.zhijiaow.com/blog/20260526-687.shtml
+</p>
+
+<h3>张馨予启程巴黎时装周</h3>
+<p>
+ | 来源: http://qhdyyxx.zhijiaow.com/blog/20260526-584.shtml
+</p>
+
+<h3>于适启程巴黎时装周</h3>
+<p>
+ | 来源: http://oa.jieyue.net/blog/20260526-207.shtml
+</p>
+
+<h3>易烊千玺亮相米兰时装周</h3>
+<p>
+ | 来源: http://xc-electric.cn/blog/20260526-374.shtml
+</p>
+
+<h3>李现一线男刊三轮满贯，呈现熟男微醺大片</h3>
+<p>
+ | 来源: http://qdsjxjsxx.zhijiaow.com/blog/20260526-389.shtml
+</p>
+
+<h3>张天爱清冷夏日大片，展露曼妙身材</h3>
+<p>
+ | 来源: http://www.exsun-china.com/blog/20260526-145.shtml
+</p>
+
+<h3>贾樟柯勇闯时尚圈，玩起癫感抽象大片</h3>
+<p>
+ | 来源: http://www.hkcxwl.com/blog/20260526-640.shtml
+</p>
+
+<h3>周迅5套高定登时尚杂志封面，演绎自然自在大片</h3>
+<p>
+ | 来源: http://www.sxdzgc.cn/blog/20260526-330.shtml
+</p>
+
+<h3>张钧甯烟熏妆容，呈现魅惑女郎画报</h3>
+<p>
+ | 来源: http://zjkbf.zhijiaow.com/blog/20260526-963.shtml
+</p>
+
+<h3>欧洲杯西装哪家强？意大利穿阿玛尼、英格兰不到400块…</h3>
+<p>
+ | 来源: http://gdbxls.com/blog/20260526-500.shtml
+</p>
+
+<h3>许凯启程米兰男装周</h3>
+<p>
+ | 来源: http://www.syt001.com/blog/20260526-592.shtml
+</p>
+
+<h3>张若昀受邀启程前往米兰男装周</h3>
+<p>
+ | 来源: http://www.xinghualou.net.cn/blog/20260526-289.shtml
+</p>
+
+<h3>王一博光影空间大片，玩转黑白经典碰撞</h3>
+<p>
+ | 来源: http://www.xl-2.com/blog/20260525-325.shtml
+</p>
+
+<h3>国屏史诗级大突破！维信诺无迹折叠屏亮相：彻底消灭折痕</h3>
+<p>
+ | 来源: http://jcs-valve.com/blog/20260526-599.shtml
+</p>
+
+<h3>荣耀500 Pro MOLLY 20周年款定于1月19日发布</h3>
+<p>
+ | 来源: http://hengaodebj.com/blog/20260526-258.shtml
+</p>
+
+<h3>全球首款机器人手机 荣耀Robot Phone高清真机图出炉：颠覆传统形态</h3>
+<p>
+ | 来源: http://baolongplastic.com/blog/20260526-541.shtml
+</p>
+
+<h3>三星下放AI技能，Galaxy A36和A56手机支持创建慢动作视频</h3>
+<p>
+ | 来源: http://www.imsilicon.com/blog/20260526-749.shtml
+</p>
+
+<h3>小米MIX Flip 2手机配置公布：搭载骁龙8至尊版处理器</h3>
+<p>
+ | 来源: http://dwjm.zhijiaow.com/blog/20260526-375.shtml
+</p>
+
+<h3>三星全球新品发布会定档7月9日！Z Fold 7/Flip 7将登场</h3>
+<p>
+ | 来源: http://www.lottiesilicone.com/blog/20260526-734.shtml
+</p>
+
+<h3>华为Pura X手机获鸿蒙HarmonyOS NEXT 5.0.1.130升级</h3>
+<p>
+ | 来源: http://www.exsun-china.com/blog/20260526-489.shtml
+</p>
+
+<h3>前苹果工程师：iOS 26闹钟界面设计有悖调研结果，并排大按钮恐致iPhone用户睡过头</h3>
+<p>
+ | 来源: http://www.zhijiaow.com/blog/20260526-558.shtml
+</p>
+
+<h3>华为Pocket 2优享版与原版有啥区别：性能小降</h3>
+<p>
+ | 来源: http://nanshan.zhijiaow.com/blog/20260526-592.shtml
+</p>
+
+<h3>用户反馈摩托罗拉预装App劫持电商应用，植入电商联盟代码</h3>
+<p>
+ | 来源: http://www.petrol-coke.com/blog/20260526-826.shtml
+</p>
+
+<h3>你认可吗！手机系统流畅度最新排名：OPPO继续第一、小米澎湃OS升至第3</h3>
+<p>
+ | 来源: http://tjprxx.zhijiaow.com/blog/20260526-603.shtml
+</p>
+
+<h3>关海涛：荣耀首次成为中东地区第二大智能手机厂商</h3>
+<p>
+ | 来源: http://www.hidier.com/blog/20260526-499.shtml
+</p>
+
+<h3>国补1784元起！vivo Y600 Turbo发布：9000mAh电池干掉充电宝 6年耐用</h3>
+<p>
+ | 来源: http://www.hengaodebj.com/blog/20260526-701.shtml
+</p>
+
+<h3>2999元起！一图读懂OPPO Reno16系列：同档最强实况神机</h3>
+<p>
+ | 来源: http://syjdsfxx.zhijiaow.com/blog/20260526-447.shtml
+</p>
+
+<h3>荣耀600元气版发布：搭载第四代骁龙7，起售价2699元</h3>
+<p>
+ | 来源: http://sxtech17.com/blog/20260526-180.shtml
+</p>
+
+<h3>荣耀600 Pro以“光羽蓝”探路线下：3399元的定价逻辑是什么？</h3>
+<p>
+ | 来源: http://www.thuni-h.com/blog/20260526-556.shtml
+</p>
+
+<h3>荣耀WIN Turbo手机官宣：搭载10000mAh青海湖电池，支持80W快充和27W反向充电</h3>
+<p>
+ | 来源: http://lctjxx.zhijiaow.com/blog/20260526-176.shtml
+</p>
+
+<h3>vivo Y600 Turbo手机发布：第四代骁龙7s，首销2099元起</h3>
+<p>
+ | 来源: http://www.an-lin.cn/blog/20260526-311.shtml
+</p>
+
+<h3>小米17 Max手机全渠道开售，国补到手价4299元起</h3>
+<p>
+ | 来源: http://304cc.cc/blog/20260526-945.shtml
+</p>
+
+<h3>华为今年秋季发布全新麒麟手机芯片，或由Mate 90系列首发</h3>
+<p>
+ | 来源: http://www.wzas119.com/blog/20260526-394.shtml
+</p>
+
+<h3>华为nova 16系列首次亮相 横向矩阵Deco 双环镜头辨识度拉满</h3>
+<p>
+ | 来源: http://sjzysxx.zhijiaow.com/blog/20260526-835.shtml
+</p>
+
+<h3>阿里达摩院玄铁9系列RVA23处理器官宣适配安卓16</h3>
+<p>
+ | 来源: http://lydzswxx.zhijiaow.com/blog/20260526-362.shtml
+</p>
+
+<h3>翻出13年前的Lumia 1020 开机开了10分钟 居然还能用</h3>
+<p>
+ | 来源: http://oa.jieyue.net/blog/20260526-288.shtml
+</p>
+
+<h3>曝三星折叠屏产品线命名调整：Z Fold 8将升级为Z Fold 8 Ultra</h3>
+<p>
+ | 来源: http://www.tingson.cn/blog/20260526-668.shtml
+</p>
+
+<h3>国产手机集体大更新，这技术我等了五年</h3>
+<p>
+ | 来源: http://tsmeirognmeifaxx.zhijiaow.com/blog/20260526-993.shtml
+</p>
+
+<h3>古尔曼：苹果iOS 27将允许第三方投屏协议替代AirPlay</h3>
+<p>
+ | 来源: http://zhongtianjianshe.net/blog/20260526-374.shtml
+</p>
+
+<h3>这次我真心推荐苹果AI</h3>
+<p>
+ | 来源: http://tjdengying.cn/blog/20260526-737.shtml
+</p>
+
+<h3>OPPO Reno16 Pro首次搭载2亿超清云台主摄，天玑9500s加持</h3>
+<p>
+ | 来源: http://www.fastchina.net/blog/20260526-928.shtml
+</p>
+
+<h3>荣耀WIN Turbo系列手机三色官图发布，5月29日发布</h3>
+<p>
+ | 来源: http://www.lishiwang.net/blog/20260526-241.shtml
+</p>
+
+<h3>vivo S60系列手机全新配色“星星海”设计细节公布：星芒光刻工艺+一体浮光冷雕玻璃</h3>
+<p>
+ | 来源: http://www.szeoffice.com/blog/20260526-202.shtml
+</p>
+
+<h3>iOS 27相机大升级，拍照更懂你</h3>
+<p>
+ | 来源: http://qgsk.zhijiaow.com/blog/20260526-108.shtml
+</p>
+
+<h3>OPPO Reno16系列官宣首次搭载AI键：支持一键闪记</h3>
+<p>
+ | 来源: http://beijinghuiyi.zhijiaow.com/blog/20260526-613.shtml
+</p>
+
+<h3>vivo Y600 Turbo上架预约：9000mAh大电池 出门告别充电宝</h3>
+<p>
+ | 来源: http://zzzyxy.zhijiaow.com/blog/20260526-831.shtml
+</p>
+
+<h3>iPhone二十周年纪念版曝光：四微曲屏+屏下FaceID，中框回归大弧度</h3>
+<p>
+ | 来源: http://www.etalentlink.com/blog/20260526-669.shtml
+</p>
+
+<h3>无需更新系统：努比亚星云AIOS 2.0机型已支持DeepSeek-V4</h3>
+<p>
+ | 来源: http://www.chinanewman.cn/blog/20260526-578.shtml
+</p>
+
+<h3>消息称安卓或复刻苹果打法，Pro系列和标准版分开上市</h3>
+<p>
+ | 来源: http://hdec.zhijiaow.com/blog/20260526-100.shtml
+</p>
+
+<h3>重大变革：fpt.渲染展示苹果iPhone 20</h3>
+<p>
+ | 来源: http://xagxjs.zhijiaow.com/blog/20260526-238.shtml
+</p>
+
+<h3>巅峰对决！三星打造的安卓第一阔折叠来了：对标华为Pura X Max</h3>
+<p>
+ | 来源: http://zbdqhxx.zhijiaow.com/blog/20260526-105.shtml
+</p>
+
+<h3>苹果iPhone 17/Pro领跑Q1手机畅销榜，Top10合计贡献全球25%出货量创历年新高</h3>
+<p>
+ | 来源: http://qdhk.zhijiaow.com/blog/20260526-468.shtml
+</p>
+
+<h3>用户反馈三星One UI 8.5移除视频滤镜功能</h3>
+<p>
+ | 来源: http://gkgc.zhijiaow.com/blog/20260526-167.shtml
+</p>
+
+<h3>小米REDMI Note 17系列手机现身，海外型号有望提档发布</h3>
+<p>
+ | 来源: http://xhkj.zhijiaow.com/blog/20260526-957.shtml
+</p>
+
+<h3>配色大换血！iPhone 18 Pro四色实锤：爱马仕橙彻底缺席</h3>
+<p>
+ | 来源: http://sdrmzxxy.zhijiaow.com/blog/20260526-450.shtml
+</p>
+
+<h3>iPhone 18 Pro/Pro Max贴膜新鲜出炉：边框更窄了</h3>
+<p>
+ | 来源: http://gzgdzx.zhijiaow.com/blog/20260526-994.shtml
+</p>
+
+<h3>华为nova 16真机偷跑：双圆环模组</h3>
+<p>
+ | 来源: http://www.metfin.com.hk/blog/20260526-544.shtml
+</p>
+
+<h3>iPhone 17系列暴降1000元后销量暴增：中国区激活量累积突破3000万台</h3>
+<p>
+ | 来源: http://fzzx-ujs.qiyitech.cn/blog/20260526-168.shtml
+</p>
+
+<h3>小米17Max评测：苹果都放弃的大屏手机，小米为什么还要做？</h3>
+<p>
+ | 来源: http://sjzhs.zhijiaow.com/blog/20260526-428.shtml
+</p>
+
+<h3>Google调整Android 17锁屏媒体界面，主卡片加侧边小卡片上线</h3>
+<p>
+ | 来源: http://dyjs.zhijiaow.com/blog/20260526-983.shtml
+</p>
+
+<h3>努比亚Z80 Ultra官宣接入DeepSeek V4：不用更新系统就能用</h3>
+<p>
+ | 来源: http://www.shuhuasou.com/blog/20260526-240.shtml
+</p>
+
+<h3>荣耀新旗舰曝光：配万毫安大电池还有主动散热</h3>
+<p>
+ | 来源: http://zzzyxy.zhijiaow.com/blog/20260526-384.shtml
+</p>
+
+<h3>HMD Vibe 2 5G海外发售，起售价约777元</h3>
+<p>
+ | 来源: http://www.aiteou.com/blog/20260526-418.shtml
+</p>
+
+<h3>苹果iPhone 17 Pro将撑起整场MLS直播，灵活机位传递更多视角</h3>
+<p>
+ | 来源: http://sxtech17.com/blog/20260526-618.shtml
+</p>
+
+<h3>小米这次的发布会，让无数米粉兴奋炸了</h3>
+<p>
+ | 来源: http://www.huizhuozz.com/blog/20260526-905.shtml
+</p>
+
+<h3>雷军强烈建议大家现在就换手机：内存成本持续上涨 未来两年还会越来越贵</h3>
+<p>
+ | 来源: http://huizhuoexpo.cn/blog/20260526-191.shtml
+</p>
+
+<h3>小米17 Max发布：8000mAh超大电池，国补价4299元起</h3>
+<p>
+ | 来源: http://edu-baidu.zhijiaow.com/blog/20260526-336.shtml
+</p>
+
+<h3>vivo Y600 Turbo手机现身官网，5月25日预售</h3>
+<p>
+ | 来源: http://www.ywxyjyx.com/blog/20260526-244.shtml
+</p>
+
+<h3>鸿蒙HarmonyOS 6.1升级亮点：“秘密限时查看”功能上线</h3>
+<p>
+ | 来源: http://www.autopeitao.com/blog/20260526-653.shtml
+</p>
+
+<h3>荣耀首款阔折叠曝光：2nm骁龙8 Elite Gen6，主屏测7.6英寸±</h3>
+<p>
+ | 来源: http://www.yiqiyinglianmeng.com/blog/20260526-449.shtml
+</p>
+
+<h3>iPhone 11以来首次：ACSI报告三星超苹果成2026美国手机满意度最高厂商</h3>
+<p>
+ | 来源: http://zzjz.zhijiaow.com/blog/20260526-829.shtml
+</p>
+
+<h3>小米17T系列国行版入网？消息称新机搭载天玑8500/9500芯片</h3>
+<p>
+ | 来源: http://wlwgcjs.zhijiaow.com/blog/20260525-755.shtml
+</p>
+
+<h3>OPPO Find X9 Ultra哈苏专业影像配件套装极地冰川色开售：2499元</h3>
+<p>
+ | 来源: http://www.shunlijunjidian.com/blog/20260526-645.shtml
+</p>
+
+<h3>升级iOS 26.5后，想降级？晚了</h3>
+<p>
+ | 来源: http://www.huizhuoexpo.cn/blog/20260526-685.shtml
+</p>
+
+<h3>刚发布这1TB手机，最后的价格把我整不会了</h3>
+<p>
+ | 来源: http://lyjdxx.zhijiaow.com/blog/20260526-317.shtml
+</p>
+
+<h3>iQOO 15T发布：首发天玑9500 Monster芯片 配2K“珠峰屏”</h3>
+<p>
+ | 来源: http://sdrmzxxy.zhijiaow.com/blog/20260526-618.shtml
+</p>
+
+<h3>荣耀WIN Turbo定档5月29日：取消散热风扇</h3>
+<p>
+ | 来源: http://www.feihuit.cn/blog/20260526-130.shtml
+</p>
+
+<h3>曝华为鸿蒙HarmonyOS 6应用音量单独调节正在适配</h3>
+<p>
+ | 来源: http://www.jsxdaf.com/blog/20260526-889.shtml
+</p>
+
+<h3>vivo S60系列配色公布：星星海、初夏绿、仲夏夜三款</h3>
+<p>
+ | 来源: http://www.chinafire119.cn/blog/20260526-159.shtml
+</p>
+
+<h3>消息称华为Pura X Max横阔折手机销量已破25万，更贵的典藏版卖得更多</h3>
+<p>
+ | 来源: http://nyeform.cn/blog/20260526-430.shtml
+</p>
+
+<h3>荣耀WIN Turbo新机官宣5月29日发布，消息称无内置风扇</h3>
+<p>
+ | 来源: http://spraywebtool.qiyitech.cn/blog/20260526-744.shtml
+</p>
+
+<h3>外媒上手特朗普T1手机：不再标榜“美国制造”</h3>
+<p>
+ | 来源: http://www.rzjupian.com/blog/20260526-846.shtml
+</p>
+
+<h3>“魔幻”手机：苹果、小米和华为中高端机逆势降价，OPPO、vivo和荣耀刚涨价</h3>
+<p>
+ | 来源: http://noo7.net/blog/20260526-908.shtml
+</p>
+
+<h3>苹果折叠iPad将与折叠iPhone共享铰链 预计售价超2万元</h3>
+<p>
+ | 来源: http://zhonglu.zhijiaow.com/blog/20260526-794.shtml
+</p>
+
+<h3>618大战在即，小米"忍痛"降价</h3>
+<p>
+ | 来源: http://hfzbjx.com/blog/20260526-413.shtml
+</p>
+
+<h3>苹果6月第一款新品，终于公布了</h3>
+<p>
+ | 来源: http://xuesijia.zhijiaow.com/blog/20260526-368.shtml
+</p>
+
+<h3>苹果Sports应用扩至170个市场，为2026世界杯引入对阵图等</h3>
+<p>
+ | 来源: http://tsjsxy.zhijiaow.com/blog/20260526-924.shtml
+</p>
+
+<h3>苹果iOS 27新特性：系统级生成，自动给视频加字幕</h3>
+<p>
+ | 来源: http://tools.itxiong.com/blog/20260526-978.shtml
+</p>
+
+<h3>联想拯救者新一代Y70发布：骁龙8 Gen 5+2K 144Hz屏，2599元起</h3>
+<p>
+ | 来源: http://h.ythqkj.com/blog/20260526-569.shtml
+</p>
+
+<h3>摩托罗拉moto razr 70 Ultra发布：搭载骁龙8至尊版，7499元起</h3>
+<p>
+ | 来源: http://bzjsj.zhijiaow.com/blog/20260526-288.shtml
+</p>
+
+<h3>联想发布天禧AI 4.0：新增Claw“养虾”能力等</h3>
+<p>
+ | 来源: http://www.qzj99.com/blog/20260526-948.shtml
+</p>
+
+<h3>小米澎湃OS 4来了：液态玻璃美学惊艳蜕变 小米18首发</h3>
+<p>
+ | 来源: http://zzwrj.zhijiaow.com/blog/20260526-411.shtml
+</p>
+
+<h3>联想moto首款大折叠手机！moto razr fold图赏</h3>
+<p>
+ | 来源: http://sjzlg.zhijiaow.com/blog/20260526-355.shtml
+</p>
+
+<h3>Omdia：东南亚智能手机市场2026Q1平均售价同比大增19%</h3>
+<p>
+ | 来源: http://www.dragon-bite.com/blog/20260526-610.shtml
+</p>
+
+<h3>存储涨价让安卓阵营很是崩溃：平均售价上涨近20% 用户推迟换机周期</h3>
+<p>
+ | 来源: http://xhkj.zhijiaow.com/blog/20260526-595.shtml
+</p>
+
+<h3>部分谷歌Pixel 10等手机用户反馈来电不振动，导致漏接电话</h3>
+<p>
+ | 来源: http://shanghuangmei.com/blog/20260526-316.shtml
+</p>
+
+<h3>租手机看演唱会，值吗？</h3>
+<p>
+ | 来源: http://www.huowei-js.com/blog/20260526-688.shtml
+</p>
+
+<h3>宋雨琦代言！OPPO Reno16系列正式亮相：3D悬浮星球工艺 配色梦幻</h3>
+<p>
+ | 来源: http://www.sxsslgcxh.com/blog/20260526-575.shtml
+</p>
