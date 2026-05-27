@@ -1,0 +1,502 @@
+<h1> AI Builders Digest 今日热点快报</h1>
+<p><strong>2026年05月27日 11时59分56秒(UTC+8)</strong></p>
+<hr>
+<h3>喜报｜上戏学子主演短片《万尼亚的困惑》入围三大权威影展</h3>
+<p>
+ | 来源: http://www.tjmbtgt.com/blog/20260526-716.shtml
+</p>
+
+<h3>金球奖允许AI作品参赛，但表演类奖项必须以真人演员实际演出为主</h3>
+<p>
+ | 来源: http://gkgc.zhijiaow.com/blog/20260526-247.shtml
+</p>
+
+<h3>《小黄人与大怪兽》定档7月3日 萌趣归来大胆搞怪闹出世界危机</h3>
+<p>
+ | 来源: http://www.imsilicon.com/blog/20260526-486.shtml
+</p>
+
+<h3>《真人快打2》今日上映 大尺度血腥格斗引爆口碑</h3>
+<p>
+ | 来源: http://www.hnxiaoxin.com/blog/20260526-202.shtml
+</p>
+
+<h3>等了50年，终于等到一块配得上《大白鲨》的银幕</h3>
+<p>
+ | 来源: http://zjkwhdl.zhijiaow.com/blog/20260526-181.shtml
+</p>
+
+<h3>《星球大战：曼达洛人与古古》上映在即，多重精彩活动“原力全开”</h3>
+<p>
+ | 来源: http://sdrm.zhijiaow.com/blog/20260526-953.shtml
+</p>
+
+<h3>《穿普拉达的女王2》五一档昂扬美学盛宴，沉浸式体验名利场华丽与温情，共赴摩登之约</h3>
+<p>
+ | 来源: http://pr.suerda.com/blog/20260526-802.shtml
+</p>
+
+<h3>赵涛领衔，李庚希戚薇助力！2026戛纳中国馆启幕，续写中国电影国际对话新篇章</h3>
+<p>
+ | 来源: http://sxtech17.com/blog/20260526-618.shtml
+</p>
+
+<h3>电影《出入平安》定档5月16日 肖央阿云嘎娜扎黄小蕾共抗天灾！</h3>
+<p>
+ | 来源: http://hdjs.zhijiaow.com/blog/20260526-195.shtml
+</p>
+
+<h3>电影《三心两意》明日上映！五一档轻盈喜剧不容错过！</h3>
+<p>
+ | 来源: http://taqcmrxx.zhijiaow.com/blog/20260526-422.shtml
+</p>
+
+<h3>肖战马丽分获第33届北京大学生电影节影帝影后</h3>
+<p>
+ | 来源: http://www.tjmws.com/blog/20260526-180.shtml
+</p>
+
+<h3>三代动画人齐聚上美影新片《燃比娃》上海首映 以热爱合力托举火种</h3>
+<p>
+ | 来源: http://migun.net.cn/blog/20260526-484.shtml
+</p>
+
+<h3>凤凰院线经理指数｜吴彦祖主演《寒战1994》预测票房4亿，情怀拉满有望成档期冠军</h3>
+<p>
+ | 来源: http://hongyi.jieyue.net/blog/20260526-799.shtml
+</p>
+
+<h3>《记忆碎片》定档5月29日 诺兰悬疑神作首登内地IMAX大银幕</h3>
+<p>
+ | 来源: http://www.jsxxwy.com/blog/20260526-790.shtml
+</p>
+
+<h3>DC影业暑期巨制《超级少女》确认引进 星际史诗冒险引爆期待</h3>
+<p>
+ | 来源: http://pdzjzx.zhijiaow.com/blog/20260526-252.shtml
+</p>
+
+<h3>凤凰院线经理指数｜郑恺刘浩存主演电影预测票房2亿，有类型优势但受众偏窄</h3>
+<p>
+ | 来源: http://www.zyl100.com/blog/20260526-252.shtml
+</p>
+
+<h3>凤凰院线经理指数｜陈思诚新片预测票房2亿，北影节口碑佳有望成黑马</h3>
+<p>
+ | 来源: http://ytbdqn.zhijiaow.com/blog/20260526-324.shtml
+</p>
+
+<h3>电影《三心两意》曝终极预告 林依晨治愈告白张艺凡互为彼此的港湾</h3>
+<p>
+ | 来源: http://www.xl-2.com/blog/20260525-325.shtml
+</p>
+
+<h3>电影《茶馆》4K修复CLED版世界首映，中影科技以工匠精神再现银幕经典</h3>
+<p>
+ | 来源: http://china-heyong.com/blog/20260526-966.shtml
+</p>
+
+<h3>五一就要对“症”下“笑” 《10间敢死队》暖愈良方等你笑验</h3>
+<p>
+ | 来源: http://web8juuxq.host010.host888.net/blog/20260526-137.shtml
+</p>
+
+<h3>电影《错时告白》北影节浪漫展映，5月20日告白节开启甜蜜告白</h3>
+<p>
+ | 来源: http://sjzdszy.zhijiaow.com/blog/20260526-610.shtml
+</p>
+
+<h3>《真人快打2》预售开启,血腥厮杀席卷银幕</h3>
+<p>
+ | 来源: http://sdmzjsxy.zhijiaow.com/blog/20260526-204.shtml
+</p>
+
+<h3>朱熙越跨界电影《10间敢死队》 终结自嗨困境</h3>
+<p>
+ | 来源: http://zjkwhdl.zhijiaow.com/blog/20260526-137.shtml
+</p>
+
+<h3>戛纳国际电影节中国馆·中国电影全球推广活动合作官宣 开启国际化新篇章</h3>
+<p>
+ | 来源: http://www.naiweitech.com/blog/20260526-297.shtml
+</p>
+
+<h3>电影《我要你好好的》登陆电影频道 陈慧凌饰演黄玲</h3>
+<p>
+ | 来源: http://xagxjs.zhijiaow.com/blog/20260526-238.shtml
+</p>
+
+<h3>IMAX《迈克尔·杰克逊：巨星之路》观影 IMAX深度沉浸现场歌迷入戏落泪</h3>
+<p>
+ | 来源: http://dgyibiao.com/blog/20260526-558.shtml
+</p>
+
+<h3>困住几代人的，何止方圆八百米</h3>
+<p>
+ | 来源: http://www.shunlijunjidian.com/blog/20260526-138.shtml
+</p>
+
+<h3>技术赋能·IP焕新·内容提质—— “紫金光影微视听创新大赛”主题沙龙纪实</h3>
+<p>
+ | 来源: http://www.hrfgj.com/blog/20260526-790.shtml
+</p>
+
+<h3>重生、荒年、开挂……漫剧的「流量密码」还能用多久？</h3>
+<p>
+ | 来源: http://www.feiya17.com/blog/20260526-374.shtml
+</p>
+
+<h3>谁在替三十多岁的女人出那口气？</h3>
+<p>
+ | 来源: http://tssyzz.zhijiaow.com/blog/20260526-434.shtml
+</p>
+
+<h3>谁在砸钱，谁在撤退，什么题材最吃香？聊聊今年Q1电影备案</h3>
+<p>
+ | 来源: http://llgas.com/blog/20260526-129.shtml
+</p>
+
+<h3>好莱坞来华营业，无效内卷？</h3>
+<p>
+ | 来源: http://nyeform.cn/blog/20260526-951.shtml
+</p>
+
+<h3>老剧翻红，是吃了新剧的红利？</h3>
+<p>
+ | 来源: http://www.jsxdaf.com/blog/20260526-889.shtml
+</p>
+
+<h3>最先做AI漫剧的那批人都死透了</h3>
+<p>
+ | 来源: http://metfin.com.hk/blog/20260526-238.shtml
+</p>
+
+<h3>牛犇这部冷门神作，谁敢看第二遍</h3>
+<p>
+ | 来源: http://hdec.zhijiaow.com/blog/20260526-100.shtml
+</p>
+
+<h3>AI热、日影冷、烟火浓，聊聊今年北影节三个不同</h3>
+<p>
+ | 来源: http://whyysxx.zhijiaow.com/blog/20260526-409.shtml
+</p>
+
+<h3>密钥延期，是电影的「续命丹」吗？</h3>
+<p>
+ | 来源: http://dragon-bite.com/blog/20260526-324.shtml
+</p>
+
+<h3>史上最挤五一档，热度最高的是这部？</h3>
+<p>
+ | 来源: http://www.yiqiyinglianmeng.com/blog/20260526-700.shtml
+</p>
+
+<h3>直播这步棋，浪姐走对了吗？</h3>
+<p>
+ | 来源: http://www.hengaodebj.com/blog/20260526-393.shtml
+</p>
+
+<h3>流媒体变道，网大走到哪一步了？</h3>
+<p>
+ | 来源: http://qyw-831608.hichina.com/blog/20260526-183.shtml
+</p>
+
+<h3>凤凰院线经理指数｜《穿普拉达的女王2》预测票房2.5亿，五一档唯一时尚题材有望领跑</h3>
+<p>
+ | 来源: http://qiushi.zhijiaow.com/blog/20260526-457.shtml
+</p>
+
+<h3>电影《纵横四海》预售开启 周润发张国荣 钟楚红巅峰演绎极致情感！</h3>
+<p>
+ | 来源: http://h.ythqkj.com/blog/20260526-837.shtml
+</p>
+
+<h3>史上首次！陈思诚《10间敢死队》北影节加映 零差评续杯加满</h3>
+<p>
+ | 来源: http://cnzz.zhijiaow.com/blog/20260526-447.shtml
+</p>
+
+<h3>华谊兄弟8年来亏损超85亿，被申请破产重整</h3>
+<p>
+ | 来源: http://jixiao.zhijiaow.com/blog/20260526-659.shtml
+</p>
+
+<h3>易烊千玺惊喜献声 上美影新片《燃比娃》传火特别视频致敬非遗传承人</h3>
+<p>
+ | 来源: http://tjhhgl.com/blog/20260526-906.shtml
+</p>
+
+<h3>电影《孤雁》今日上线 一场信仰与背叛的终极博弈</h3>
+<p>
+ | 来源: http://pengpeng.zhijiaow.com/blog/20260526-795.shtml
+</p>
+
+<h3>《猪猪侠大电影之竞速小英雄》定档五一 猪猪侠星航驰骋赛道逆转未来</h3>
+<p>
+ | 来源: http://bdww.zhijiaow.com/blog/20260526-623.shtml
+</p>
+
+<h3>《真人快打2》曝“生死对决”海报 硬核格斗再掀高潮</h3>
+<p>
+ | 来源: http://sdswyyxx.zhijiaow.com/blog/20260526-844.shtml
+</p>
+
+<h3>首届香港国际AI电影节（2026）面向全球征片</h3>
+<p>
+ | 来源: http://sjzdszy.zhijiaow.com/blog/20260526-959.shtml
+</p>
+
+<h3>五一档电影《三心两意》预售开启 希林娜依·高献唱片尾曲</h3>
+<p>
+ | 来源: http://xianysxx.zhijiaow.com/blog/20260526-447.shtml
+</p>
+
+<h3>冰窟下的生命接力！电影《勇者无疆》全国首映礼在长沙举行</h3>
+<p>
+ | 来源: http://www.dgyibiao.com/blog/20260526-446.shtml
+</p>
+
+<h3>预售开启！五一档电影《寒战1994》发布“明争暗斗”版终极预告</h3>
+<p>
+ | 来源: http://gzgdzx.zhijiaow.com/blog/20260526-227.shtml
+</p>
+
+<h3>《寒战1994》5月1日登陆IMAX®影院 格局升级！“演技天团”IMAX大银幕飙戏，“寒战”宇宙成型</h3>
+<p>
+ | 来源: http://www.klmysjy.com/blog/20260526-531.shtml
+</p>
+
+<h3>星空为幕，光影作伴，中影创新“无界放映”燃动电影文化嘉年华</h3>
+<p>
+ | 来源: http://qdjdxx.zhijiaow.com/blog/20260526-887.shtml
+</p>
+
+<h3>光影筑梦，雀跃新生｜2025金雀盛典圆满落幕</h3>
+<p>
+ | 来源: http://www.szkewalk.com/blog/20260526-326.shtml
+</p>
+
+<h3>凤凰院线经理指数｜迈克尔·杰克逊传记电影预测票房6500万，情怀保底初期排片占优势</h3>
+<p>
+ | 来源: http://zzhjxx.zhijiaow.com/blog/20260526-949.shtml
+</p>
+
+<h3>凤凰院线经理指数｜梁朝伟主演文艺片预测票房600万，观影门槛高难大众化</h3>
+<p>
+ | 来源: http://sdwgy.zhijiaow.com/blog/20260526-905.shtml
+</p>
+
+<h3>万达电影正式更名儒意电影，打造超级场景+超级IP</h3>
+<p>
+ | 来源: http://www.an-lin.cn/blog/20260526-568.shtml
+</p>
+
+<h3>第十六届北京国际电影节盛大启幕，周波优雅亮相</h3>
+<p>
+ | 来源: http://hczhawa.com/blog/20260526-306.shtml
+</p>
+
+<h3>电影《年会不能停2！》 剧组亮相北影节 职场新搭子张若昀白客“班味”拉满</h3>
+<p>
+ | 来源: http://www.aktmembrane.com/blog/20260526-316.shtml
+</p>
+
+<h3>格斗游戏里程碑《街头霸王》真人化改编 全新预告海报 波动拳燃炸亮相</h3>
+<p>
+ | 来源: http://sywt.zhijiaow.com/blog/20260526-131.shtml
+</p>
+
+<h3>打破大小屏次元壁 万达电影首创“拼好片”模式</h3>
+<p>
+ | 来源: http://qhwbjy.zhijiaow.com/blog/20260526-306.shtml
+</p>
+
+<h3>黄渤倪妮银幕惊喜首搭 《一个男人和一个女人》5月16日与你相愈</h3>
+<p>
+ | 来源: http://www.qiangyang.com.cn/blog/20260526-946.shtml
+</p>
+
+<h3>陈思诚新片《10间敢死队》曝角色海报 全员活人精神状态太超前</h3>
+<p>
+ | 来源: http://lzqxxx.zhijiaow.com/blog/20260526-607.shtml
+</p>
+
+<h3>追光动画新作《三国第一部：争洛阳》定档暑期7月10日</h3>
+<p>
+ | 来源: http://www.klmysjy.com/blog/20260526-320.shtml
+</p>
+
+<h3>上美影新片《燃比娃》宣传曲MV曝光 DOUDOU唱响少年无畏热血冒险</h3>
+<p>
+ | 来源: http://xtqxxx.zhijiaow.com/blog/20260526-643.shtml
+</p>
+
+<h3>电影《森中有林》“致命诱惑”预告 于和伟高圆圆情债缠身酿命案</h3>
+<p>
+ | 来源: http://www.tjkehui.com/blog/20260526-154.shtml
+</p>
+
+<h3>第十六届北京国际电影节开幕式首波嘉宾阵容官宣</h3>
+<p>
+ | 来源: http://www.huaiheedu.com/blog/20260526-620.shtml
+</p>
+
+<h3>电影《角头：大桥头》今日燃爽上映 硬核帮派狠片生猛开干</h3>
+<p>
+ | 来源: http://llgas.com/blog/20260526-543.shtml
+</p>
+
+<h3>上美影新片《燃比娃》4.28上映 传承篇特辑见证中国动画艺术经典赓续</h3>
+<p>
+ | 来源: http://www.nansinet.com/blog/20260526-217.shtml
+</p>
+
+<h3>电影《三心两意》曝喜剧特辑 林依晨张艺凡孙艺洲关系越乱笑点越满</h3>
+<p>
+ | 来源: http://bjcj.zhijiaow.com/blog/20260526-285.shtml
+</p>
+
+<h3>《穿普拉达的女王2》4月30日大秀开启 IMAX奢华银幕沉浸时尚巅峰</h3>
+<p>
+ | 来源: http://www.fshctax.com/blog/20260526-694.shtml
+</p>
+
+<h3>第十六届北京国际电影节IMAX单元片单揭晓 六部光影巨制缔造沉浸盛宴</h3>
+<p>
+ | 来源: http://lyjdxx.zhijiaow.com/blog/20260526-317.shtml
+</p>
+
+<h3>为什么我们总在他的电影里哭？</h3>
+<p>
+ | 来源: http://www.airfast.com/blog/20260526-214.shtml
+</p>
+
+<h3>帅了一辈子，我却只喜欢他演的反派</h3>
+<p>
+ | 来源: http://qyw-831608.hichina.com/blog/20260526-243.shtml
+</p>
+
+<h3>张凌赫的帅哥红利，能吃多久？</h3>
+<p>
+ | 来源: http://hbjthh.zhijiaow.com/blog/20260526-227.shtml
+</p>
+
+<h3>爱情喜剧《错时告白》正式定档5月20日，即将亮相北京电影节</h3>
+<p>
+ | 来源: http://jnjsxy.zhijiaow.com/blog/20260526-611.shtml
+</p>
+
+<h3>穿越回去，然后呢？</h3>
+<p>
+ | 来源: http://chejia.jmyj.net.cn/blog/20260526-345.shtml
+</p>
+
+<h3>AI砍向短剧，先倒下的为什么是他们？</h3>
+<p>
+ | 来源: http://jianli.zhijiaow.com/blog/20260526-261.shtml
+</p>
+
+<h3>这是今年最容易被误解的科幻片？</h3>
+<p>
+ | 来源: http://www.hidier.com/blog/20260526-756.shtml
+</p>
+
+<h3>为什么她能成为网红圈里唯一的常青树？</h3>
+<p>
+ | 来源: http://dzyh.zhijiaow.com/blog/20260526-792.shtml
+</p>
+
+<h3>单依纯，玩脱了？</h3>
+<p>
+ | 来源: http://www.xazxwl.com.cn/blog/20260526-593.shtml
+</p>
+
+<h3>上美影诚意之作！首部宣纸手绘动画长片《燃比娃》定档4月28日</h3>
+<p>
+ | 来源: http://www.huizhuoexpo.cn/blog/20260526-990.shtml
+</p>
+
+<h3>清明档总票房破3亿，《超级马力》领跑，文淇新片成最大黑马</h3>
+<p>
+ | 来源: http://pr.suerda.com/blog/20260525-935.shtml
+</p>
+
+<h3>电影《如父如母》北京首映礼启幕 4月4日公映引发亲情共鸣</h3>
+<p>
+ | 来源: http://shengqianhui.zhijiaow.com/blog/20260526-390.shtml
+</p>
+
+<h3>青葱计划在香港：关锦鹏汤尼·雷恩开讲，田壮壮黄建新郑保瑞齐聚</h3>
+<p>
+ | 来源: http://texu3d.com/blog/20260526-212.shtml
+</p>
+
+<h3>中影创新高校点映《我，许可》《阳光女子合唱团》 全国26校“无界放映”收获师生高口碑</h3>
+<p>
+ | 来源: http://www.sarchee.com/blog/20260526-571.shtml
+</p>
+
+<h3>电影《蝴蝶楼·惊魂》今日上映 李梦刘思维姜卓君领衔勇闯诡宅试胆</h3>
+<p>
+ | 来源: http://hskjgc.zhijiaow.com/blog/20260526-912.shtml
+</p>
+
+<h3>蓝灿昭新片《阳光灿烂的地方》莫斯科电影节首映，金莎身兼主演评委双职</h3>
+<p>
+ | 来源: http://zjkbf.zhijiaow.com/blog/20260526-306.shtml
+</p>
+
+<h3>《超级马力欧银河大电影》今日上映！</h3>
+<p>
+ | 来源: http://sywt.zhijiaow.com/blog/20260526-908.shtml
+</p>
+
+<h3>《迈克尔·杰克逊：巨星之路》4.24上映 IMAX影音盛宴朝圣传奇</h3>
+<p>
+ | 来源: http://cnc.js.cn/blog/20260526-493.shtml
+</p>
+
+<h3>凤凰院线经理指数｜彭昱畅丁禹兮双男主电影预测票房4500万，积压6年品质存疑</h3>
+<p>
+ | 来源: http://xycyzl.com/blog/20260525-536.shtml
+</p>
+
+<h3>凤凰院线经理指数｜《我，许可》预测票房1.2亿，题材稀缺但受众偏小难破圈</h3>
+<p>
+ | 来源: http://wmh.cn/blog/20260526-898.shtml
+</p>
+
+<h3>凤凰院线经理指数｜马思纯白客新片预测票房6500万，预售亮眼但议题性偏弱</h3>
+<p>
+ | 来源: http://hongyi.jieyue.net/blog/20260526-986.shtml
+</p>
+
+<h3>凤凰院线经理指数｜《超级马力欧》续作预测票房2.5亿，有望超前作领跑清明档</h3>
+<p>
+ | 来源: http://dzmrmfxx.zhijiaow.com/blog/20260526-795.shtml
+</p>
+
+<h3>电影《勇者无疆》定档4月22日 文书战士演绎硝烟下的动人史诗</h3>
+<p>
+ | 来源: http://lykjxx.zhijiaow.com/blog/20260526-683.shtml
+</p>
+
+<h3>电影《蝴蝶楼·惊魂》北京首映 李梦刘思维姜卓君周铁上演惊魂迷局反杀</h3>
+<p>
+ | 来源: http://www.sxdzgc.cn/blog/20260526-156.shtml
+</p>
+
+<h3>国台办：《阳光女子合唱团》规范标注“中国台湾地区”无可指摘</h3>
+<p>
+ | 来源: http://syjdsfxx.zhijiaow.com/blog/20260526-447.shtml
+</p>
+
+<h3>第三届澳门国际喜剧节4月澳琴双城开笑</h3>
+<p>
+ | 来源: http://yhgsyy.com/blog/20260526-405.shtml
+</p>
+
+<h3>电影《我的妈耶》北京首映礼笑泪齐飞 观众点赞全家观影适配度满分</h3>
+<p>
+ | 来源: http://lnqzyjsxx.zhijiaow.com/blog/20260526-466.shtml
+</p>

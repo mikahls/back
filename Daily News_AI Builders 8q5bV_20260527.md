@@ -1,0 +1,502 @@
+<h1> AI Builders Digest 今日热点快报</h1>
+<p><strong>2026年05月27日 12时05分47秒(UTC+8)</strong></p>
+<hr>
+<h3>菲司法部指示对参议员德拉罗萨执行逮捕令</h3>
+<p>
+ | 来源: http://www.dhqlqx.com/blog/20260526-740.shtml
+</p>
+
+<h3>贝莱德（BlackRock）对长和的多头持仓比例降至4.81%</h3>
+<p>
+ | 来源: http://zzhlxx.zhijiaow.com/blog/20260526-571.shtml
+</p>
+
+<h3>摩根大通（JPMorgan）对海尔智家H股的多头持仓比例降至4.02%</h3>
+<p>
+ | 来源: http://fzzx-ujs.qiyitech.cn/blog/20260526-433.shtml
+</p>
+
+<h3>瑞银集团（UBS）对药明康德H股的多头持仓比例增至5.0%</h3>
+<p>
+ | 来源: http://xtysxx.zhijiaow.com/blog/20260526-200.shtml
+</p>
+
+<h3>摩根大通（JPMorgan）对药明康德H股的多头持仓比例增至11.2%</h3>
+<p>
+ | 来源: http://zzyishuxx.zhijiaow.com/blog/20260526-522.shtml
+</p>
+
+<h3>贝莱德（BlackRock）对新华保险H股的多头持仓比例降至4.89%</h3>
+<p>
+ | 来源: http://zhongtianjianshe.net/blog/20260526-104.shtml
+</p>
+
+<h3>贝莱德（BlackRock）对快手-W的多头持仓比例降至4.95%</h3>
+<p>
+ | 来源: http://sdrm.zhijiaow.com/blog/20260526-336.shtml
+</p>
+
+<h3>高盛对哔哩哔哩-W的多头持仓比例降至5.99%</h3>
+<p>
+ | 来源: http://www.dragon-bite.com/blog/20260526-380.shtml
+</p>
+
+<h3>贝莱德（BlackRock）对哔哩哔哩-W的多头持仓比例增至5.04%</h3>
+<p>
+ | 来源: http://sjzly.zhijiaow.com/blog/20260526-300.shtml
+</p>
+
+<h3>华安基金：华安标普全球石油指数（LOF）A类基金份额2026年5月25日暂停赎回</h3>
+<p>
+ | 来源: http://lyhlxx.zhijiaow.com/blog/20260526-764.shtml
+</p>
+
+<h3>圣诺生物：醋酸特利加压素原料药完成美国 FDA 备案</h3>
+<p>
+ | 来源: http://sdxmsy.zhijiaow.com/blog/20260526-949.shtml
+</p>
+
+<h3>德生科技与青云科技达成生态合作</h3>
+<p>
+ | 来源: http://jntl.zhijiaow.com/blog/20260526-653.shtml
+</p>
+
+<h3>黄大豆1号、豆油系列期权将在大商所挂牌交易</h3>
+<p>
+ | 来源: http://www.zlbigdata.com/blog/20260526-189.shtml
+</p>
+
+<h3>机构：DRAM现货价格走势波动，NAND报价微幅上涨</h3>
+<p>
+ | 来源: http://4808.zhijiaow.com/blog/20260526-628.shtml
+</p>
+
+<h3>四环生物：股票连续两个交易日收盘价涨幅偏离值累计达到20%</h3>
+<p>
+ | 来源: http://sdswyyxx.zhijiaow.com/blog/20260526-755.shtml
+</p>
+
+<h3>截至4月底我国电动汽车充电基础设施（枪）总数达2195.5万个</h3>
+<p>
+ | 来源: http://sjzysxx.zhijiaow.com/blog/20260526-835.shtml
+</p>
+
+<h3>长三角达成新一轮省际交通高质量互联互通合作协议</h3>
+<p>
+ | 来源: http://tangshandiannaopeixun.zhijiaow.com/blog/20260526-619.shtml
+</p>
+
+<h3>我国科研团队首次定量揭示湿地甲烷排放概率</h3>
+<p>
+ | 来源: http://hjzyy.zhijiaow.com/blog/20260526-439.shtml
+</p>
+
+<h3>比亚迪辟谣收购玛莎拉蒂</h3>
+<p>
+ | 来源: http://twjmds.com/blog/20260526-713.shtml
+</p>
+
+<h3>京能电力今日涨9.95%，成交额41.55亿元，换手率8.18%</h3>
+<p>
+ | 来源: http://pengpeng.zhijiaow.com/blog/20260526-364.shtml
+</p>
+
+<h3>福斯特：拟转让子公司5319万元股权</h3>
+<p>
+ | 来源: http://noo7.net/blog/20260526-626.shtml
+</p>
+
+<h3>大众交通今日涨10.08%，成交额8.32亿元，换手率9.77%</h3>
+<p>
+ | 来源: http://www.abcd6.net/blog/20260525-850.shtml
+</p>
+
+<h3>信达生物：达伯舒联合爱优特获中国国家药监局批准用于治疗晚期或转移性肾细胞癌患者</h3>
+<p>
+ | 来源: http://www.wyshyjy.cn/blog/20260526-511.shtml
+</p>
+
+<h3>百奥泰：乌司奴单抗注射液获药品注册证书</h3>
+<p>
+ | 来源: http://tsjsxy.zhijiaow.com/blog/20260526-924.shtml
+</p>
+
+<h3>晨光股份：拟以5亿元-10亿元回购公司股份</h3>
+<p>
+ | 来源: http://cdhlzy.zhijiaow.com/blog/20260526-893.shtml
+</p>
+
+<h3>东芯股份今日跌15.81%，成交额69.88亿元，换手率10.62%</h3>
+<p>
+ | 来源: http://www.leasy-auto.com/blog/20260526-407.shtml
+</p>
+
+<h3>国晟科技：子公司安徽国晟新能源科技有限公司涉及一起金额约 5184.62万元的诉讼案件</h3>
+<p>
+ | 来源: http://cswb.zhijiaow.com/blog/20260526-355.shtml
+</p>
+
+<h3>金川国际：龚海林提出附先决条件部分要约，每股0.3港元收购约1.0%股份</h3>
+<p>
+ | 来源: http://xhkj.zhijiaow.com/blog/20260526-936.shtml
+</p>
+
+<h3>ST信安：首次回购0.16%公司股份，累计已回购金额445.8万元</h3>
+<p>
+ | 来源: http://www.klmysjy.com/blog/20260526-531.shtml
+</p>
+
+<h3>东阳光药：完成H股全流通，2.08亿股内资股转H股上市</h3>
+<p>
+ | 来源: http://www.sxsslgcxh.com/blog/20260526-707.shtml
+</p>
+
+<h3>古特雷斯强烈谴责以色列在近东救济工程处大院建立军事设施</h3>
+<p>
+ | 来源: http://www.lottiesilicone.com/blog/20260526-796.shtml
+</p>
+
+<h3>福元医药：氯吡格雷阿司匹林片获得药品注册证书</h3>
+<p>
+ | 来源: http://bjcj.zhijiaow.com/blog/20260526-223.shtml
+</p>
+
+<h3>鲁北化工：全资子公司祥海科技年产6万吨氯化法钛白粉扩建项目开车成功</h3>
+<p>
+ | 来源: http://yx-gas.com/blog/20260526-509.shtml
+</p>
+
+<h3>迈威生物：9MW2821联合疗法ORR达83.0%</h3>
+<p>
+ | 来源: http://tsysxy.zhijiaow.com/blog/20260526-683.shtml
+</p>
+
+<h3>南京医药：拟出资不超过4.5亿元设立并购基金，议案将提交股东会</h3>
+<p>
+ | 来源: http://www.prodigy.net.cn/blog/20260526-757.shtml
+</p>
+
+<h3>巴基斯坦内政部长与伊朗外长会谈 讨论双边关系等问题</h3>
+<p>
+ | 来源: http://www.goldenflame.com.cn/blog/20260525-229.shtml
+</p>
+
+<h3>特斯拉宣布监督版FSD入华 门店回应：建议不要完全相信 落地还得看政策</h3>
+<p>
+ | 来源: http://hengxing.zhijiaow.com/blog/20260526-135.shtml
+</p>
+
+<h3>伊朗媒体：20名伊朗船员经外交斡旋回国</h3>
+<p>
+ | 来源: http://dfhk.zhijiaow.com/blog/20260525-701.shtml
+</p>
+
+<h3>据港交所文件：芜湖伯特利汽车安全系统股份有限公司向港交所提交上市申请书</h3>
+<p>
+ | 来源: http://dzyh.zhijiaow.com/blog/20260526-168.shtml
+</p>
+
+<h3>山金国际：完成注销419.48万股</h3>
+<p>
+ | 来源: http://bjsx.zhijiaow.com/blog/20260526-169.shtml
+</p>
+
+<h3>海正药业：阿帕他胺片获药品注册证书</h3>
+<p>
+ | 来源: http://www.huizhuoexpo.cn/blog/20260526-643.shtml
+</p>
+
+<h3>威帝股份：拟现金收购智越天成100%股权及玖星精密44.85%股权，获管委会同意函</h3>
+<p>
+ | 来源: http://sjzjxxigc.zhijiaow.com/blog/20260526-934.shtml
+</p>
+
+<h3>联合水务：交大菡源创投受让6%股份，转让价2.63亿元</h3>
+<p>
+ | 来源: http://lzqxxx.zhijiaow.com/blog/20260526-745.shtml
+</p>
+
+<h3>凯普生物：全资子公司取得医疗器械注册证书</h3>
+<p>
+ | 来源: http://www.naiweitech.com/blog/20260526-898.shtml
+</p>
+
+<h3>复星医药：控股子公司药品获临床试验批准</h3>
+<p>
+ | 来源: http://jnqcwxxx.zhijiaow.com/blog/20260526-254.shtml
+</p>
+
+<h3>复星医药：左氧氟沙星注射液获注册批准</h3>
+<p>
+ | 来源: http://hualu.zhijiaow.com/blog/20260526-985.shtml
+</p>
+
+<h3>鹏辉能源等在广州投资成立能源技术新公司</h3>
+<p>
+ | 来源: http://haojida.com/blog/20260526-898.shtml
+</p>
+
+<h3>网易：第一季度营收306亿元 研发投入45亿元</h3>
+<p>
+ | 来源: http://lydzswxx.zhijiaow.com/blog/20260526-452.shtml
+</p>
+
+<h3>两部门：禁止直接或间接从菲律宾输入猪、野猪及其相关产品</h3>
+<p>
+ | 来源: http://www.dragon-bite.com/blog/20260526-252.shtml
+</p>
+
+<h3>福莱蒽特：拟采购IT设备及服务器，预计总金额不超过人民币8.5亿元</h3>
+<p>
+ | 来源: http://yqfk.jieyue.net/blog/20260526-209.shtml
+</p>
+
+<h3>美太空探索技术公司计划上市 融资预计超700亿美元</h3>
+<p>
+ | 来源: http://tsyzz.zhijiaow.com/blog/20260526-930.shtml
+</p>
+
+<h3>总投资近5795亿元 《投资重庆机会清单》发布</h3>
+<p>
+ | 来源: http://jzgc.zhijiaow.com/blog/20260526-443.shtml
+</p>
+
+<h3>珀莱雅：拟收购花知晓12.5479%股权，持股将达51%</h3>
+<p>
+ | 来源: http://zpsjzsgy.zhijiaow.com/blog/20260526-348.shtml
+</p>
+
+<h3>永贵电器：控股子公司重庆永贵收到中标通知书，中标金额3637.58万元</h3>
+<p>
+ | 来源: http://hjzyy.zhijiaow.com/blog/20260526-295.shtml
+</p>
+
+<h3>金信诺：员工持股计划已全部出售完毕并提前终止</h3>
+<p>
+ | 来源: http://fzzx-ujs.qiyitech.cn/blog/20260526-806.shtml
+</p>
+
+<h3>港股收评：恒生指数跌1.03%，恒生科技指数跌2.15%</h3>
+<p>
+ | 来源: http://www.kayin.com.cn/blog/20260526-451.shtml
+</p>
+
+<h3>Applied Digital美股盘前涨超10%</h3>
+<p>
+ | 来源: http://dwjm.zhijiaow.com/blog/20260526-755.shtml
+</p>
+
+<h3>美光科技美股盘前涨超2%</h3>
+<p>
+ | 来源: http://qdsjxjsxx.zhijiaow.com/blog/20260526-694.shtml
+</p>
+
+<h3>波导股份：完成回购2.0007%公司股份，实际回购金额6390.51万元</h3>
+<p>
+ | 来源: http://bsd.zhijiaow.com/blog/20260526-703.shtml
+</p>
+
+<h3>今年前4个月中俄贸易达852亿美元 同比增长19.7%</h3>
+<p>
+ | 来源: http://qdjdxx.zhijiaow.com/blog/20260526-651.shtml
+</p>
+
+<h3>普洛药业：子公司琥珀酸美托洛尔缓释片新增25mg规格获批</h3>
+<p>
+ | 来源: http://qhwbjy.zhijiaow.com/blog/20260526-306.shtml
+</p>
+
+<h3>领益智造：5月20日向香港联交所重新递交了本次发行上市的申请</h3>
+<p>
+ | 来源: http://hdjs.zhijiaow.com/blog/20260526-603.shtml
+</p>
+
+<h3>信立泰：SAL0195药品临床试验申请获得受理</h3>
+<p>
+ | 来源: http://bjgyjqrxx.zhijiaow.com/blog/20260526-580.shtml
+</p>
+
+<h3>国药现代：控股子公司国药一心制药有限公司获得伊布替尼胶囊药品注册证书</h3>
+<p>
+ | 来源: http://hdgyxx.zhijiaow.com/blog/20260526-563.shtml
+</p>
+
+<h3>南向资金净卖出超60亿港元</h3>
+<p>
+ | 来源: http://www.imsilicon.com/blog/20260526-749.shtml
+</p>
+
+<h3>美股中概股盘前多数下跌，网易跌5%</h3>
+<p>
+ | 来源: http://wenda.zhijiaow.com/blog/20260525-367.shtml
+</p>
+
+<h3>美股大型科技股盘前涨跌互现，特斯拉涨1%</h3>
+<p>
+ | 来源: http://www.heyunceramics.com/blog/20260525-737.shtml
+</p>
+
+<h3>蒙草生态：联合体中标3.11亿元三北六期项目</h3>
+<p>
+ | 来源: http://www.tingson.cn/blog/20260526-596.shtml
+</p>
+
+<h3>九鼎新材投资成立进出口公司</h3>
+<p>
+ | 来源: http://tjprxx.zhijiaow.com/blog/20260526-297.shtml
+</p>
+
+<h3>商务部介绍中俄达成的经贸成果</h3>
+<p>
+ | 来源: http://sdjtjs.zhijiaow.com/blog/20260526-908.shtml
+</p>
+
+<h3>外交部：中方坚定支持古巴维护国家主权和民族尊严，反对外来干涉</h3>
+<p>
+ | 来源: http://lwffmrmf.zhijiaow.com/blog/20260526-445.shtml
+</p>
+
+<h3>A股和港股午后突然下跌，分析人士：两大原因</h3>
+<p>
+ | 来源: http://rzjs.zhijiaow.com/blog/20260526-613.shtml
+</p>
+
+<h3>泰恩康：全资子公司收到和胃整肠丸药品注册证书</h3>
+<p>
+ | 来源: http://etmval.com/blog/20260526-890.shtml
+</p>
+
+<h3>广东发布地质灾害气象预警 已累计组织转移16126人</h3>
+<p>
+ | 来源: http://www.sz-ys.com/blog/20260526-297.shtml
+</p>
+
+<h3>兴齐眼药：子公司获得贝美前列素滴眼液药品注册证书</h3>
+<p>
+ | 来源: http://www.cnc.js.cn/blog/20260525-828.shtml
+</p>
+
+<h3>第八届西洽会签约项目212个 正式合同额超1500亿元</h3>
+<p>
+ | 来源: http://tongda.zhijiaow.com/blog/20260526-609.shtml
+</p>
+
+<h3>润都股份：获得双氯芬酸钠缓释片药品注册证书</h3>
+<p>
+ | 来源: http://sjztjyx.zhijiaow.com/blog/20260526-710.shtml
+</p>
+
+<h3>外交部：中方将以自己的方式为推动半岛问题政治解决进程发挥建设性作用</h3>
+<p>
+ | 来源: http://www.dhqlqx.com/blog/20260526-210.shtml
+</p>
+
+<h3>特斯拉最后一批Model S/X下线交付 原产线将量产机器人</h3>
+<p>
+ | 来源: http://www.jesdy.com/blog/20260526-718.shtml
+</p>
+
+<h3>美以对伊下一步行动现分歧 内塔尼亚胡“气急败坏”</h3>
+<p>
+ | 来源: http://hdec.zhijiaow.com/blog/20260526-100.shtml
+</p>
+
+<h3>强降雨已造成湖南石门6人遇难10人失联</h3>
+<p>
+ | 来源: http://www.hkcxwl.com/blog/20260526-553.shtml
+</p>
+
+<h3>港股科网股持续下挫，哔哩哔哩-W跌近8%</h3>
+<p>
+ | 来源: http://hanlonggf.com/blog/20260526-207.shtml
+</p>
+
+<h3>国债期货收盘全线下跌 30年期主力合约跌0.21%</h3>
+<p>
+ | 来源: http://huzhen.zhijiaow.com/blog/20260526-346.shtml
+</p>
+
+<h3>洪水蓝色预警 广西5条河流7个站出现超警洪水</h3>
+<p>
+ | 来源: http://www.sxsslgcxh.com/blog/20260526-217.shtml
+</p>
+
+<h3>抖音电商开展盲盒潮玩专项治理</h3>
+<p>
+ | 来源: http://jjmy.zhijiaow.com/blog/20260526-790.shtml
+</p>
+
+<h3>商务部：中美双方应为双向农产品贸易创造有利条件 推动恢复并不断拓展农产品贸易合作</h3>
+<p>
+ | 来源: http://sdwgy.zhijiaow.com/blog/20260526-203.shtml
+</p>
+
+<h3>海关总署署长孙梅君会见俄罗斯农业部部长卢特</h3>
+<p>
+ | 来源: http://www.feiya17.com/blog/20260526-682.shtml
+</p>
+
+<h3>巴基斯坦总理夏巴兹将访华</h3>
+<p>
+ | 来源: http://www.fertigation.net.cn/blog/20260526-899.shtml
+</p>
+
+<h3>美军航母进入加勒比海，特朗普：古巴局势“不会升级”</h3>
+<p>
+ | 来源: http://jngyjg.zhijiaow.com/blog/20260526-560.shtml
+</p>
+
+<h3>中国足协：17人被终身禁止从事任何与足球有关的活动</h3>
+<p>
+ | 来源: http://sdyujie.zhijiaow.com/blog/20260526-654.shtml
+</p>
+
+<h3>欧洲主要股指开盘集体下跌</h3>
+<p>
+ | 来源: http://tslc.zhijiaow.com/blog/20260526-247.shtml
+</p>
+
+<h3>ETF收评：中韩半导体ETF领涨4.52%，科创半导体设备ETF领跌7.38%</h3>
+<p>
+ | 来源: http://www.huhangonline.com/blog/20260525-499.shtml
+</p>
+
+<h3>A股收评：科创50指数冲高回落跌3.7%，半导体、CPO等算力硬件股尾盘杀跌</h3>
+<p>
+ | 来源: http://yx-gas.com/blog/20260526-944.shtml
+</p>
+
+<h3>ETF两市成交额5140.76亿元</h3>
+<p>
+ | 来源: http://cdkjxx.zhijiaow.com/blog/20260526-322.shtml
+</p>
+
+<h3>国家防灾减灾救灾委员会启动国家四级救灾应急响应 指导广西做好地震灾害救助工作</h3>
+<p>
+ | 来源: http://yqfk.jieyue.net/blog/20260526-530.shtml
+</p>
+
+<h3>股指期货午盘收盘 主力合约全线收跌</h3>
+<p>
+ | 来源: http://shanghuangmei.com/blog/20260526-765.shtml
+</p>
+
+<h3>国家发改委：自5月21日24时起，国内汽、柴油（标准品）价格每吨分别上调75元、70元</h3>
+<p>
+ | 来源: http://sjzpa.zhijiaow.com/blog/20260526-282.shtml
+</p>
+
+<h3>开创社会捐建公立医院新模式，上海六院福建医院和敏院区进入竣工筹备阶段</h3>
+<p>
+ | 来源: http://dyjs.zhijiaow.com/blog/20260526-506.shtml
+</p>
+
+<h3>A股三大指数持续回落，均跌超2%</h3>
+<p>
+ | 来源: http://shengqianhui.zhijiaow.com/blog/20260526-485.shtml
+</p>
+
+<h3>富时中国A50指数期货跌1%</h3>
+<p>
+ | 来源: http://www.rzjupian.com/blog/20260525-312.shtml
+</p>
