@@ -1,0 +1,502 @@
+<h1> AI Builders Digest 今日热点快报</h1>
+<p><strong>2026年05月29日 01时49分31秒(UTC+8)</strong></p>
+<hr>
+<h3>士泽生物 iPSC 衍生神经细胞疗法:探索脊髓损伤治疗的新路径</h3>
+<p>
+ | 来源: http://huanqiu.zhijiaow.com/blog/20260528-127.shtml
+</p>
+
+<h3>诺时科技携手宁达长寿，共同探索长寿健康服务新场景</h3>
+<p>
+ | 来源: http://pengpeng.zhijiaow.com/blog/20260528-906.shtml
+</p>
+
+<h3>NCCN重磅认可：桐树基因诊心安-MRD技术改写早期肿瘤术后复发监测新标准</h3>
+<p>
+ | 来源: http://dzyh.zhijiaow.com/blog/20260528-367.shtml
+</p>
+
+<h3>深化产教融合，共育康复英才，锐博康复赴温州医科大学和南方医科大学开展深度交流合作</h3>
+<p>
+ | 来源: http://niuyan.zhijiaow.com/blog/20260528-265.shtml
+</p>
+
+<h3>聚力细胞治疗行业标准化建设，华龛生物深度参编两项国家标准</h3>
+<p>
+ | 来源: http://xiangyee.cn/blog/20260528-995.shtml
+</p>
+
+<h3>辐联科技宣布完成超10亿人民币融资，加速推进多条临床阶段管线的开发及比利时生产设施建设</h3>
+<p>
+ | 来源: http://tangshandiannaopeixun.zhijiaow.com/blog/20260528-413.shtml
+</p>
+
+<h3>仲量联行：生命科学地产显现三大新信号----创新药驱动租赁需求，跨国药企加码多元空间布局，产业载体迈向社群化</h3>
+<p>
+ | 来源: http://czysxx.zhijiaow.com/blog/20260528-484.shtml
+</p>
+
+<h3>济民可信获评"中药现代化三十年示范单位" 金水宝片荣获"中药现代化三十年示范品种"</h3>
+<p>
+ | 来源: http://shgtljs.zhijiaow.com/blog/20260528-176.shtml
+</p>
+
+<h3>朝阳区“科技百园”再落子：中关村（朝阳）数字医疗产业园拓展区推介会暨朝阳区数字医疗产业高质量发展研讨会成功举办</h3>
+<p>
+ | 来源: http://www.victorymarine.com.cn/blog/20260528-133.shtml
+</p>
+
+<h3>抗炎应成干眼基础治疗，国产0.05%环孢素滴眼液破解依从性难题</h3>
+<p>
+ | 来源: http://qapplego.com/blog/20260528-798.shtml
+</p>
+
+<h3>这个用错 100 年的病名，早该改了！多名专家呼吁</h3>
+<p>
+ | 来源: http://tjmws.com/blog/20260528-949.shtml
+</p>
+
+<h3>《NAD+在衰老相关疾病中的作用及临床应用中国专家共识（2026版）》在杭发布，衰老干预有迹可循</h3>
+<p>
+ | 来源: http://tsyzz.zhijiaow.com/blog/20260528-217.shtml
+</p>
+
+<h3>自然美·动态美｜深圳香蜜丽格隆重举行“双美胶原蛋白注射医师学术交流会”</h3>
+<p>
+ | 来源: http://tsysxy.zhijiaow.com/blog/20260528-441.shtml
+</p>
+
+<h3>燃动苏州！达因药业赋能特步全家跑出趣，以专业守护儿童健康成长</h3>
+<p>
+ | 来源: http://www.jesdy.com/blog/20260528-677.shtml
+</p>
+
+<h3>明眸策马追梦・青春强国有我！2026 辽宁高考公益助考行动正式启航</h3>
+<p>
+ | 来源: http://hbkjgc.zhijiaow.com/blog/20260528-978.shtml
+</p>
+
+<h3>入选广州市首批链主企业，云舟生物协力打造全球细胞与基因产业创新高地</h3>
+<p>
+ | 来源: http://cnc.js.cn/blog/20260528-508.shtml
+</p>
+
+<h3>天使到家平台与海南健康管理职院达成校企合作 平台上线开启居家护理新征程</h3>
+<p>
+ | 来源: http://qdhwlg.zhijiaow.com/blog/20260528-895.shtml
+</p>
+
+<h3>珠海首例iStent inject W微创青光眼手术，在珠海爱尔眼科医院成功施行</h3>
+<p>
+ | 来源: http://ywxyjyx.com/blog/20260528-750.shtml
+</p>
+
+<h3>浙江大学生工食品学院 × 海洋之星营养创新联合实验室揭牌</h3>
+<p>
+ | 来源: http://petrol-coke.com/blog/20260528-678.shtml
+</p>
+
+<h3>"中法文化之春"走进申城，用音乐之光照亮"1"样的童年</h3>
+<p>
+ | 来源: http://www.dhqlqx.com/blog/20260528-585.shtml
+</p>
+
+<h3>代代成长我来守护！小快克母亲节短片上线，22年情感积淀引共鸣</h3>
+<p>
+ | 来源: http://gyzhzyjsxy.zhijiaow.com/blog/20260528-955.shtml
+</p>
+
+<h3>血压升高20mmHg心脑梗风险翻倍，减肥药如何帮你稳血压？</h3>
+<p>
+ | 来源: http://ridewynd.com/blog/20260528-611.shtml
+</p>
+
+<h3>2026 儿童智能眼镜深度调研：鲸鸣视控以AI智能+数据化破解家庭近视防控难题</h3>
+<p>
+ | 来源: http://www.chinanewman.cn/blog/20260528-892.shtml
+</p>
+
+<h3>维C补得越多越好？听央视《你好营养》专家解析，选对品类更关键</h3>
+<p>
+ | 来源: http://www.thuni-h.com/blog/20260528-288.shtml
+</p>
+
+<h3>中国创新药全球研发之路，如何破局突围？</h3>
+<p>
+ | 来源: http://hanlonggf.com/blog/20260528-581.shtml
+</p>
+
+<h3>艾可瑞妥单抗注射液在华获批，革新滤泡性淋巴瘤治疗格局</h3>
+<p>
+ | 来源: http://www.huizhuozz.com/blog/20260528-463.shtml
+</p>
+
+<h3>中药现代化30年，养无极牌补肺丸亮相第五届中医药高质量发展大会</h3>
+<p>
+ | 来源: http://sjzdszy.zhijiaow.com/blog/20260528-631.shtml
+</p>
+
+<h3>BNP 升高只想到心衰？常见原因一文总结</h3>
+<p>
+ | 来源: http://304cc.cc/blog/20260528-689.shtml
+</p>
+
+<h3>血压高的时候需要吃药，血压正常了是不是就可以停药了？</h3>
+<p>
+ | 来源: http://www.hidier.com/blog/20260528-670.shtml
+</p>
+
+<h3>抢救感染性休克，去甲肾上腺素怎么泵？为何不能用盐配？</h3>
+<p>
+ | 来源: http://hdjs.zhijiaow.com/blog/20260528-824.shtml
+</p>
+
+<h3>雾化致患者窒息死亡？警惕这些并发症</h3>
+<p>
+ | 来源: http://tsmeirognmeifaxx.zhijiaow.com/blog/20260528-824.shtml
+</p>
+
+<h3>告别苦行式减重：“不难瘦才享受”健康减重科普展登陆上海</h3>
+<p>
+ | 来源: http://www.imsilicon.com/blog/20260528-430.shtml
+</p>
+
+<h3>石药执行总裁出走，成立新公司？两年内已有 2 位高管离职</h3>
+<p>
+ | 来源: http://zzwrj.zhijiaow.com/blog/20260528-992.shtml
+</p>
+
+<h3>有甲状腺结节，还可以用司美格鲁肽吗？</h3>
+<p>
+ | 来源: http://dzmrxx.zhijiaow.com/blog/20260528-856.shtml
+</p>
+
+<h3>涨薪了！北京大三甲官宣：提高夜班费和补助，最高涨幅 200%</h3>
+<p>
+ | 来源: http://www.heyunceramics.com/blog/20260528-770.shtml
+</p>
+
+<h3>影响 1.7 亿女性，PCOS 正式更名为 PMOS</h3>
+<p>
+ | 来源: http://fzzx-ujs.qiyitech.cn/blog/20260528-194.shtml
+</p>
+
+<h3>痰培养后用抗真菌药，为什么被主任批评了？</h3>
+<p>
+ | 来源: http://www.hkcxwl.com/blog/20260528-935.shtml
+</p>
+
+<h3>AhR技术破解低龄患儿皮肤病用药难题</h3>
+<p>
+ | 来源: http://hczhawa.com/blog/20260528-294.shtml
+</p>
+
+<h3>频频更新！惠州口腔医院靠什么赢得满墙荣誉？</h3>
+<p>
+ | 来源: http://qdhwlg.zhijiaow.com/blog/20260528-274.shtml
+</p>
+
+<h3>加码中国，共拓未来 | 麦施美学与朗姿医美达成全面战略合作</h3>
+<p>
+ | 来源: http://gkgc.zhijiaow.com/blog/20260528-148.shtml
+</p>
+
+<h3>学龄期儿童，双手手背出现同心环状水疱，如何诊断？</h3>
+<p>
+ | 来源: http://wlwgcjs.zhijiaow.com/blog/20260528-603.shtml
+</p>
+
+<h3>恶心呕吐未重视，全身皮肤突然长出厚厚的「黑痂」，站友：别被这药耽误了</h3>
+<p>
+ | 来源: http://bzjsj.zhijiaow.com/blog/20260528-716.shtml
+</p>
+
+<h3>争议 50 年，宣武医院团队提出新治疗理念</h3>
+<p>
+ | 来源: http://www.nansinet.com/blog/20260528-144.shtml
+</p>
+
+<h3>九十风华传岐黄 匠心济世守传承——全国名中医周超凡先生学术传承集锦</h3>
+<p>
+ | 来源: http://xc-electric.cn/blog/20260528-299.shtml
+</p>
+
+<h3>复杂冠心病：当心脏的"水管"出了问题，谁来为你选择对的那条路？</h3>
+<p>
+ | 来源: http://bdbsq.zhijiaow.com/blog/20260528-779.shtml
+</p>
+
+<h3>全球顶刊独家合作+300人专家团！拆解阿里健康氢离子的循证实践？</h3>
+<p>
+ | 来源: http://www.feihuit.cn/blog/20260528-247.shtml
+</p>
+
+<h3>号称 10 年内消灭所有疾病，AI 真成药神了？</h3>
+<p>
+ | 来源: http://huizhuoexpo.cn/blog/20260528-759.shtml
+</p>
+
+<h3>二甲双胍不同制剂怎么用？一文总结</h3>
+<p>
+ | 来源: http://bjsflyxq.zhijiaow.com/blog/20260528-388.shtml
+</p>
+
+<h3>Skinda皮肤科李京烈院长亮相东京candla用户会议——分享前沿医美临床经验</h3>
+<p>
+ | 来源: http://sygjswxx.zhijiaow.com/blog/20260528-437.shtml
+</p>
+
+<h3>新劢德亮相 ASGH 亚洲医疗健康高峰论坛 展示面向创新药的吸入与鼻腔递送平台能力</h3>
+<p>
+ | 来源: http://www.sxsslgcxh.com/blog/20260528-438.shtml
+</p>
+
+<h3>郑州美中商都妇产医院孕教课堂解码“仿生腹膜外美痕剖宫产技术”，朱宝菊教授亲临讲授</h3>
+<p>
+ | 来源: http://pr.suerda.com/blog/20260528-517.shtml
+</p>
+
+<h3>国内首个人体功效临床气垫问世！伊属山椒素气垫双权威验证，引领彩妆迈入临床时代。</h3>
+<p>
+ | 来源: http://dfsf.zhijiaow.com/blog/20260528-338.shtml
+</p>
+
+<h3>泰康之家第三届“青春养老服务节”圆满落幕，以专业与温度定义高品质养老</h3>
+<p>
+ | 来源: http://www.tjmbtgt.com/blog/20260528-250.shtml
+</p>
+
+<h3>月经不调多囊如何调理？西安莲湖秦华中医医院张俊莉这么说</h3>
+<p>
+ | 来源: http://tsysxy.zhijiaow.com/blog/20260528-489.shtml
+</p>
+
+<h3>RingConn发布新一代血管健康AI智能戒指，开启居家健康管理新范式</h3>
+<p>
+ | 来源: http://chejia.jmyj.net.cn/blog/20260528-732.shtml
+</p>
+
+<h3>阿里健康与英国BMJ集团达成期刊内容独家合作</h3>
+<p>
+ | 来源: http://www.shunlijunjidian.com/blog/20260528-551.shtml
+</p>
+
+<h3>当告别无法避免：一位女儿在嘉会医疗为父亲选择的“生命质量”之路</h3>
+<p>
+ | 来源: http://www.weihuakeji.com/blog/20260528-947.shtml
+</p>
+
+<h3>登上国际期刊：嘉会医疗空间分割放疗技术破解难治性乳腺癌难题</h3>
+<p>
+ | 来源: http://hengxing.zhijiaow.com/blog/20260528-566.shtml
+</p>
+
+<h3>泰尔茂比司特与仲恩生医合作推进MSC后期临床生产</h3>
+<p>
+ | 来源: http://www.idcvisa.com/blog/20260528-105.shtml
+</p>
+
+<h3>为什么没人再提「养龙虾」了？</h3>
+<p>
+ | 来源: http://llgas.com/blog/20260528-522.shtml
+</p>
+
+<h3>从“火线揭牌”到“长寿医疗高地”——泰康同济（武汉）医院三甲揭牌的六年突围与模式重构</h3>
+<p>
+ | 来源: http://gzgdzx.zhijiaow.com/blog/20260528-505.shtml
+</p>
+
+<h3>食药同源，守护国民肺部健康</h3>
+<p>
+ | 来源: http://pr.suerda.com/blog/20260528-301.shtml
+</p>
+
+<h3>SUPER 2发表于《Nature Communications》：依苏帕格鲁肽α显著改善血糖，并带来β细胞功能积极响应</h3>
+<p>
+ | 来源: http://oa.jieyue.net/blog/20260528-639.shtml
+</p>
+
+<h3>“中国防治肥胖日”特别行动：科学减重，“肝”掉脂肪</h3>
+<p>
+ | 来源: http://www.tjkehui.com/blog/20260528-965.shtml
+</p>
+
+<h3>AAA认证落地医美消费：索塔热玛吉以百万分之二信任标尺重构决策逻辑</h3>
+<p>
+ | 来源: http://sdxmsy.zhijiaow.com/blog/20260528-232.shtml
+</p>
+
+<h3>王拥军院士团队再登顶刊：超时间窗取栓需要桥接吗？</h3>
+<p>
+ | 来源: http://qhdyk.zhijiaow.com/blog/20260528-946.shtml
+</p>
+
+<h3>青年科创破题脑胶质瘤预后！昆明医科大学 “胶预先锋” 团队自研AI平台 精准助力胶质瘤预后评估</h3>
+<p>
+ | 来源: http://shandongzhongyao.zhijiaow.com/blog/20260528-810.shtml
+</p>
+
+<h3>真实生物与信达合作，瞄准结直肠癌免疫治疗等治疗空白</h3>
+<p>
+ | 来源: http://www.rzjupian.com/blog/20260528-307.shtml
+</p>
+
+<h3>分子检测——破解“看不清”难题，守护“紫蝴蝶”生机</h3>
+<p>
+ | 来源: http://021wfz.com/blog/20260528-152.shtml
+</p>
+
+<h3>已出现8例死亡！重磅新药被启动撤市</h3>
+<p>
+ | 来源: http://chnei.com/blog/20260528-389.shtml
+</p>
+
+<h3>内脏肥胖看着不胖，危害比肉眼胖更大？</h3>
+<p>
+ | 来源: http://zhonglu.zhijiaow.com/blog/20260528-890.shtml
+</p>
+
+<h3>应对2.5亿高尿酸人群健康挑战 杭州家门口新增浙江康静医院痛风医学中心</h3>
+<p>
+ | 来源: http://www.chinanewman.cn/blog/20260528-605.shtml
+</p>
+
+<h3>两连批！2款国家1类新药！太美医疗科技助力客户再创佳绩</h3>
+<p>
+ | 来源: http://spraywebtool.qiyitech.cn/blog/20260528-247.shtml
+</p>
+
+<h3>三甲医生齐聚腾讯科普：肥胖合并脂肪肝可逆转，科学减重开启健康新路径</h3>
+<p>
+ | 来源: http://dzmrxx.zhijiaow.com/blog/20260528-670.shtml
+</p>
+
+<h3>世界遗尿日｜徐虹医生：5岁以上还频繁尿床，不是孩子的错，是时候科学干预了</h3>
+<p>
+ | 来源: http://lzqxxx.zhijiaow.com/blog/20260528-875.shtml
+</p>
+
+<h3>泰康同济（武汉）医院正式揭牌三甲！医教研一体化发展跑出“加速度”</h3>
+<p>
+ | 来源: http://zjsfdxhzxq.zhijiaow.com/blog/20260528-394.shtml
+</p>
+
+<h3>VanCare万可康荣获FHE2026创新大奖</h3>
+<p>
+ | 来源: http://gyjs.zhijiaow.com/blog/20260528-338.shtml
+</p>
+
+<h3>2026中国生物医学工程大会暨创新医疗峰会5月苏州启幕</h3>
+<p>
+ | 来源: http://www.waibaoba.com/blog/20260528-926.shtml
+</p>
+
+<h3>专科义诊进社区 便民服务解民忧——“慢病防治健康行”走进丰台东管头社区</h3>
+<p>
+ | 来源: http://www.carinway.com/blog/20260528-629.shtml
+</p>
+
+<h3>诺贝尔奖科学家为何选择赋能中式智能养生？揭秘爱昕集团背后的“最强大脑”</h3>
+<p>
+ | 来源: http://www.szeoffice.com/blog/20260528-376.shtml
+</p>
+
+<h3>SK-II首度亮相第六届消博会，共筑高端美妆零售新生态</h3>
+<p>
+ | 来源: http://en.dexsun.com.cn/blog/20260528-278.shtml
+</p>
+
+<h3>深耕脾胃半世纪不松懈，北京融科医院王秀珍医生护佑一方百姓健康</h3>
+<p>
+ | 来源: http://www.tjkehui.com/blog/20260528-498.shtml
+</p>
+
+<h3>正式启用！上海细胞治疗集团秦皇岛北戴河新区医院投入运营</h3>
+<p>
+ | 来源: http://www.huowei-js.com/blog/20260528-857.shtml
+</p>
+
+<h3>帕金森病干细胞治疗学术会议在京举行，国产创新疗法交出亮眼答卷</h3>
+<p>
+ | 来源: http://www.abcd6.net/blog/20260528-447.shtml
+</p>
+
+<h3>国内迄今最大规模体重管理临床研究公布女性亚组数据</h3>
+<p>
+ | 来源: http://qyw-831608.hichina.com/blog/20260528-993.shtml
+</p>
+
+<h3>上亿患者的首款新药，首次写入指南！新版推荐一文总结</h3>
+<p>
+ | 来源: http://zjkwhdl.zhijiaow.com/blog/20260528-101.shtml
+</p>
+
+<h3>首次突破「禁区」！中国团队重磅研究登上柳叶刀</h3>
+<p>
+ | 来源: http://zjkbf.zhijiaow.com/blog/20260528-577.shtml
+</p>
+
+<h3>一块“国字号”奖牌背后：见证百年国风的实干与新生</h3>
+<p>
+ | 来源: http://dgyibiao.com/blog/20260528-893.shtml
+</p>
+
+<h3>营收破99亿、现金流大增75%，英科医疗的“韧性密码”</h3>
+<p>
+ | 来源: http://china-heyong.com/blog/20260528-323.shtml
+</p>
+
+<h3>理事单位+1！传神素问再获重点实验室权威认可</h3>
+<p>
+ | 来源: http://kffzjs.zhijiaow.com/blog/20260528-345.shtml
+</p>
+
+<h3>渔父国医馆小小中医课｜少年之气：一个时代里的少年，怎样长出真正的生命力</h3>
+<p>
+ | 来源: http://gdbxls.com/blog/20260528-523.shtml
+</p>
+
+<h3>致癌物超标 65 倍，20 多万人喝了 50 年毒水，美国政府却说是安全的</h3>
+<p>
+ | 来源: http://www.zlbigdata.com/blog/20260528-962.shtml
+</p>
+
+<h3>为爱相聚，让微笑延续——“扬帆微笑行动--专家共创启动会”温情启幕</h3>
+<p>
+ | 来源: http://www.kayin.com.cn/blog/20260528-516.shtml
+</p>
+
+<h3>食育润童心 健康筑未来 2026第二届“好食育”儿童营养与健康主题活动启幕</h3>
+<p>
+ | 来源: http://lydzswxx.zhijiaow.com/blog/20260528-203.shtml
+</p>
+
+<h3>创新药出海频遭退货 借船出海还行得通吗？</h3>
+<p>
+ | 来源: http://www.prodigy.net.cn/blog/20260528-479.shtml
+</p>
+
+<h3>中山大学最新研究探明：二甲双胍能通过多途径，发挥抗衰老作用</h3>
+<p>
+ | 来源: http://qdhwlg.zhijiaow.com/blog/20260528-251.shtml
+</p>
+
+<h3>药促会宋瑞霖：港版FDA若落地 药品上市快至8个月</h3>
+<p>
+ | 来源: http://dzmrmfxx.zhijiaow.com/blog/20260528-920.shtml
+</p>
+
+<h3>硬核科普：舌头位置摆放不对，竟会导致深覆合？需要干预吗？</h3>
+<p>
+ | 来源: http://sjzjxxigc.zhijiaow.com/blog/20260528-589.shtml
+</p>
+
+<h3>硬核科普：骨性地包天不手术怎么改善？</h3>
+<p>
+ | 来源: http://sdhkxx.zhijiaow.com/blog/20260528-789.shtml
+</p>
+
+<h3>硬核科普：如何选择植骨材料和植骨方法？</h3>
+<p>
+ | 来源: http://www.prodigy.net.cn/blog/20260528-398.shtml
+</p>
