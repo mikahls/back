@@ -1,0 +1,502 @@
+<h1> AI Builders Digest 今日热点快报</h1>
+<p><strong>2026年06月06日 22时47分29秒(UTC+8)</strong></p>
+<hr>
+<h3>银宝山新：股东布拉德已减持0.61%股份</h3>
+<p>
+ | 来源: http://shrenzhong.cn/blog/20260606-665.shtml
+</p>
+
+<h3>*ST清越：公司可能被实施重大违法强制退市，于2026年5月12日起被实施退市风险警示</h3>
+<p>
+ | 来源: http://www.hidier.com/blog/20260606-275.shtml
+</p>
+
+<h3>全线通水 平陆运河迈入通航冲刺阶段</h3>
+<p>
+ | 来源: http://rzny.zhijiaow.com/blog/20260606-791.shtml
+</p>
+
+<h3>财政部将发行2026年记账式贴现（三十三期）国债</h3>
+<p>
+ | 来源: http://en.onmillion-nano.com/blog/20260606-609.shtml
+</p>
+
+<h3>昊海生科：控股子公司三焦点人工晶状体产品获得医疗器械注册证</h3>
+<p>
+ | 来源: http://www.mingweitek.com/blog/20260606-401.shtml
+</p>
+
+<h3>日本防卫省：以冲绳为前沿强化“战时医疗”体制</h3>
+<p>
+ | 来源: http://pdzjzx.zhijiaow.com/blog/20260606-541.shtml
+</p>
+
+<h3>山东黄金：拟确认公允价值变动损失7.05亿元</h3>
+<p>
+ | 来源: http://crft.qiyitech.cn/blog/20260606-709.shtml
+</p>
+
+<h3>2026年5月基金新开户21.83万户</h3>
+<p>
+ | 来源: http://www.renzhong-green.com/blog/20260606-404.shtml
+</p>
+
+<h3>云鼎科技：董事徐加利增持0.0015%股份</h3>
+<p>
+ | 来源: http://tjqgzy.zhijiaow.com/blog/20260606-551.shtml
+</p>
+
+<h3>东吴证券：拟发行股份及支付现金收购东海证券83.68%股权，交易总价115.19亿元</h3>
+<p>
+ | 来源: http://petrol-coke.com/blog/20260606-819.shtml
+</p>
+
+<h3>2026年5月A股新开户276.53万户同比增长77.76% 2026年累计新开1729.68万户</h3>
+<p>
+ | 来源: http://www.dongmaopipe.com/blog/20260606-470.shtml
+</p>
+
+<h3>锦龙股份：4.99亿元借款被宣布提前到期</h3>
+<p>
+ | 来源: http://www.zhijiaow.com/blog/20260606-887.shtml
+</p>
+
+<h3>华锡有色：公司关注到算力金属价格暴涨和锡市场热度较高 澄清不存在可能或已经对公司产生重大影响的未公开重大信息。</h3>
+<p>
+ | 来源: http://tjqgzy.zhijiaow.com/blog/20260606-579.shtml
+</p>
+
+<h3>法国外长：以在黎境内军事行动“毫无正当理由”</h3>
+<p>
+ | 来源: http://fzzx-ujs.qiyitech.cn/blog/20260606-768.shtml
+</p>
+
+<h3>飞沃科技：因资本公积金转增股本，回购价格上限由43.44元调整为31.06元/股</h3>
+<p>
+ | 来源: http://chnei.com/blog/20260606-693.shtml
+</p>
+
+<h3>易成新能：股东开封发投解质押并再质押6.70%</h3>
+<p>
+ | 来源: http://qhdshg.zhijiaow.com/blog/20260606-332.shtml
+</p>
+
+<h3>方直科技：持股5%以上股东黄晓峰与张智章签署《股份转让协议之补充协议》</h3>
+<p>
+ | 来源: http://www.zongmeng123.com/blog/20260606-907.shtml
+</p>
+
+<h3>达威股份：拟将金狮科技60%股权划转至全资子公司并增资4080万元</h3>
+<p>
+ | 来源: http://tongda.zhijiaow.com/blog/20260606-557.shtml
+</p>
+
+<h3>中百集团成立智能科技公司</h3>
+<p>
+ | 来源: http://noo7.net/blog/20260606-676.shtml
+</p>
+
+<h3>美迪凯：2025年半导体用玻璃基板销售收入占总营收2%左右，占比较低</h3>
+<p>
+ | 来源: http://fzzx-ujs.qiyitech.cn/blog/20260606-209.shtml
+</p>
+
+<h3>康泰医学：全资子公司长沙康泰医芯生物科技有限责任公司取得《第二类医疗器械经营备案凭证》</h3>
+<p>
+ | 来源: http://sjzgy.zhijiaow.com/blog/20260606-309.shtml
+</p>
+
+<h3>华海药业：子公司HB0056获特发性肺纤维化临床试验批准，研发投入1.01亿元</h3>
+<p>
+ | 来源: http://sjzgy.zhijiaow.com/blog/20260606-178.shtml
+</p>
+
+<h3>蓝科高新：拟现金收购中国空分51%股权，交易价1.31亿元</h3>
+<p>
+ | 来源: http://crft.qiyitech.cn/blog/20260606-430.shtml
+</p>
+
+<h3>金房能源：公司未涉及液冷、电力供应业务，蓄冷储能收入占比不足3%</h3>
+<p>
+ | 来源: http://www.mingweitek.com/blog/20260606-433.shtml
+</p>
+
+<h3>火炬电子：自产MLCC业务收入占比约17%，算力方向收入占比极低</h3>
+<p>
+ | 来源: http://chinajinxian.com/blog/20260606-526.shtml
+</p>
+
+<h3>机构：预估HBM需求将持续增长 明年合约价将上涨数倍</h3>
+<p>
+ | 来源: http://www.hidier.com/blog/20260606-592.shtml
+</p>
+
+<h3>上交所宇树科技股份有限公司IPO审核状态变更为提交注册</h3>
+<p>
+ | 来源: http://beijinghuiyi.zhijiaow.com/blog/20260606-688.shtml
+</p>
+
+<h3>宏川智慧：三名高管拟各增持不低于300万元</h3>
+<p>
+ | 来源: http://www.gdgjy.com/blog/20260606-919.shtml
+</p>
+
+<h3>乌克兰首都基辅再次拉响防空警报</h3>
+<p>
+ | 来源: http://tjmws.com/blog/20260606-992.shtml
+</p>
+
+<h3>*ST节能：因涉嫌信息披露违法违规被立案</h3>
+<p>
+ | 来源: http://tzxs.zhijiaow.com/blog/20260606-702.shtml
+</p>
+
+<h3>外交部：为扩军备战找借口是日本军国主义惯用手法</h3>
+<p>
+ | 来源: http://rzjs.zhijiaow.com/blog/20260606-972.shtml
+</p>
+
+<h3>甘肃完善生态补偿机制促进流域协同治理</h3>
+<p>
+ | 来源: http://www.hkcttcar.com/blog/20260606-539.shtml
+</p>
+
+<h3>英伟达美股盘前涨超2%</h3>
+<p>
+ | 来源: http://www.kayin.com.cn/blog/20260606-879.shtml
+</p>
+
+<h3>上海加快OPC企业集聚发展</h3>
+<p>
+ | 来源: http://www.yx-gas.com/blog/20260606-628.shtml
+</p>
+
+<h3>我国进一步健全城市社区卫生服务体系</h3>
+<p>
+ | 来源: http://www.wftzjx.com/blog/20260606-770.shtml
+</p>
+
+<h3>以军对黎南部奈拜提耶市居民发出撤离令</h3>
+<p>
+ | 来源: http://sjzdszy.zhijiaow.com/blog/20260606-847.shtml
+</p>
+
+<h3>东安动力：5月发动机销量22038台，同比下降25.44%</h3>
+<p>
+ | 来源: http://www.qiangyang.com.cn/blog/20260606-137.shtml
+</p>
+
+<h3>东方雨虹：约5.42亿人民币收购印尼两公司55%股权，董事会已通过</h3>
+<p>
+ | 来源: http://www.sarchee.com/blog/20260606-880.shtml
+</p>
+
+<h3>胜蓝股份：公司中标Infra2.0整机柜高速线缆部件-Cable Box项目</h3>
+<p>
+ | 来源: http://www.wheat.org.cn/blog/20260606-845.shtml
+</p>
+
+<h3>日本防卫省正以冲绳为前沿强化“战时医疗”体制</h3>
+<p>
+ | 来源: http://pr.suerda.com/blog/20260606-756.shtml
+</p>
+
+<h3>南模生物：董事王津津拟减持0.0032%</h3>
+<p>
+ | 来源: http://yhgsyy.com/blog/20260606-190.shtml
+</p>
+
+<h3>大秦铁路：完成回购1.41%公司股份</h3>
+<p>
+ | 来源: http://www.protein-shaker-bottle.com/blog/20260606-805.shtml
+</p>
+
+<h3>隆盛科技：完成注销147.46万股</h3>
+<p>
+ | 来源: http://zhonglu.zhijiaow.com/blog/20260606-831.shtml
+</p>
+
+<h3>2025年以色列军售额创新高 连续第五年刷新纪录</h3>
+<p>
+ | 来源: http://cnc.js.cn/blog/20260606-798.shtml
+</p>
+
+<h3>宁新新材：控股股东及实际控制人变更，变更为无控股股东、无实际控制人</h3>
+<p>
+ | 来源: http://sjzgy.zhijiaow.com/blog/20260606-492.shtml
+</p>
+
+<h3>威龙股份：股东杨光第及一致行动人拟减持不超过3%</h3>
+<p>
+ | 来源: http://www.jiaziguan.com.cn/blog/20260606-161.shtml
+</p>
+
+<h3>两部门联合发布设施农业风灾和冬小麦倒伏风险预警</h3>
+<p>
+ | 来源: http://petrol-coke.com/blog/20260606-623.shtml
+</p>
+
+<h3>商务部副部长兼国际贸易谈判副代表凌激会见英中贸协主席吴思田</h3>
+<p>
+ | 来源: http://yqfk.jieyue.net/blog/20260606-697.shtml
+</p>
+
+<h3>中国中化与中国中煤签署战略合作协议</h3>
+<p>
+ | 来源: http://jnjsxy.zhijiaow.com/blog/20260606-565.shtml
+</p>
+
+<h3>永贵电器：控股子公司签两份合同合计2840.54万元</h3>
+<p>
+ | 来源: http://tongda.zhijiaow.com/blog/20260606-661.shtml
+</p>
+
+<h3>报告：中东战事和干旱或导致澳大利亚农作物大幅减产</h3>
+<p>
+ | 来源: http://www.jiaziguan.com.cn/blog/20260606-399.shtml
+</p>
+
+<h3>南向资金今日净买入22.23亿港元 腾讯控股遭净卖出居前</h3>
+<p>
+ | 来源: http://www.kayin.com.cn/blog/20260606-709.shtml
+</p>
+
+<h3>优刻得乌兹别克斯坦可用区上线</h3>
+<p>
+ | 来源: http://rzhs.zhijiaow.com/blog/20260606-622.shtml
+</p>
+
+<h3>联美控股：中城美创以4000万元认购中城典实扩募份额</h3>
+<p>
+ | 来源: http://hengaodebj.com/blog/20260606-861.shtml
+</p>
+
+<h3>巴克莱银行将法兰克福上市的海力士股票的目标价格从1100欧元上调至2300欧元</h3>
+<p>
+ | 来源: http://021shtn.com/blog/20260606-258.shtml
+</p>
+
+<h3>伊朗革命卫队：将保持最高级别军事戒备状态</h3>
+<p>
+ | 来源: http://www.jesdy.com/blog/20260606-217.shtml
+</p>
+
+<h3>快递领域首个国际标准化机构在我国成立</h3>
+<p>
+ | 来源: http://pengpeng.zhijiaow.com/blog/20260606-365.shtml
+</p>
+
+<h3>长源电力：5月发电量28.29亿千瓦时，同比降低4.62%</h3>
+<p>
+ | 来源: http://tangshanyuanzhuo.zhijiaow.com/blog/20260606-754.shtml
+</p>
+
+<h3>意法半导体美股盘前涨超10%</h3>
+<p>
+ | 来源: http://www.dcsz.com.cn/blog/20260606-470.shtml
+</p>
+
+<h3>欧元区5月通胀率预计升至3.2%</h3>
+<p>
+ | 来源: http://beijinghuiyi.zhijiaow.com/blog/20260606-632.shtml
+</p>
+
+<h3>伊朗称过去24小时24艘船通过霍尔木兹海峡</h3>
+<p>
+ | 来源: http://spacets.com/blog/20260606-105.shtml
+</p>
+
+<h3>2025年全国A级景区接待游客75.1亿人次</h3>
+<p>
+ | 来源: http://021shtn.com/blog/20260606-278.shtml
+</p>
+
+<h3>唯特偶：控股股东及一致行动人持股比例降至48.97%</h3>
+<p>
+ | 来源: http://www.jesdy.com/blog/20260606-945.shtml
+</p>
+
+<h3>艾德生物：筹划控制权变更，继续停牌不超过3个交易日</h3>
+<p>
+ | 来源: http://shrenzhong.cn/blog/20260606-183.shtml
+</p>
+
+<h3>伯特利：收购豫北转向50.9727%股份交割完成</h3>
+<p>
+ | 来源: http://www.candor-co.com/blog/20260606-848.shtml
+</p>
+
+<h3>贝莱德（BlackRock）对中联重科的多头持仓比例增至6.35%</h3>
+<p>
+ | 来源: http://www.rzjupian.com/blog/20260606-948.shtml
+</p>
+
+<h3>摩根大通（JPMorgan）对中国平安H股的多头持仓比例降至7.91%</h3>
+<p>
+ | 来源: http://www.jsxdaf.com/blog/20260606-103.shtml
+</p>
+
+<h3>铭科精技：拟使用不超过3600万元回购公司股份</h3>
+<p>
+ | 来源: http://yqfk.jieyue.net/blog/20260606-125.shtml
+</p>
+
+<h3>花旗集团对中国平安H股的多头持仓比例增至6.06%</h3>
+<p>
+ | 来源: http://hddycj.zhijiaow.com/blog/20260606-111.shtml
+</p>
+
+<h3>宝莫股份：子公司投资7863万元建设聚丙烯酰胺及油田助剂项目</h3>
+<p>
+ | 来源: http://sjzez.zhijiaow.com/blog/20260606-663.shtml
+</p>
+
+<h3>塞力医疗：拟1862.6万元出售北京供应链50%的股权</h3>
+<p>
+ | 来源: http://www.tzqc.js.cn/blog/20260606-343.shtml
+</p>
+
+<h3>贝莱德（BlackRock）对快手-W的多头持仓比例降至4.92%</h3>
+<p>
+ | 来源: http://sjszscx.zhijiaow.com/blog/20260606-934.shtml
+</p>
+
+<h3>摩根大通（JPMorgan）对小鹏集团-W的多头持仓比例增至7.13%</h3>
+<p>
+ | 来源: http://sjzhs.zhijiaow.com/blog/20260606-778.shtml
+</p>
+
+<h3>贝莱德（BlackRock）对江西铜业股份的多头持仓比例降至4.99%</h3>
+<p>
+ | 来源: http://tsyzz.zhijiaow.com/blog/20260606-638.shtml
+</p>
+
+<h3>天音控股：收到江西证监局行政监管措施决定书</h3>
+<p>
+ | 来源: http://www.protein-shaker-bottle.com/blog/20260606-268.shtml
+</p>
+
+<h3>昂利康：获得化学原料药上市申请批准通知书</h3>
+<p>
+ | 来源: http://sz.sawenow.com/blog/20260606-291.shtml
+</p>
+
+<h3>国务院印发《加快农业农村现代化“十五五”规划》</h3>
+<p>
+ | 来源: http://hanlonggf.com/blog/20260606-952.shtml
+</p>
+
+<h3>广汽埃安i60 5月销量11020辆</h3>
+<p>
+ | 来源: http://www.dcsz.com.cn/blog/20260606-599.shtml
+</p>
+
+<h3>宇通客车：5月销量3480辆，同比增长13.99%</h3>
+<p>
+ | 来源: http://tssyzz.zhijiaow.com/blog/20260606-204.shtml
+</p>
+
+<h3>银龙股份：控股股东及一致行动人拟增持</h3>
+<p>
+ | 来源: http://www.victorymarine.com.cn/blog/20260606-116.shtml
+</p>
+
+<h3>安波福与英伟达扩大合作，加速落地量产级边缘人工智能</h3>
+<p>
+ | 来源: http://tools.itxiong.com/blog/20260606-593.shtml
+</p>
+
+<h3>积成电子：控股子公司租赁办公区五年，租金及物业费合计约为1447.21万元</h3>
+<p>
+ | 来源: http://zhonglu.zhijiaow.com/blog/20260606-972.shtml
+</p>
+
+<h3>税友股份：控股股东已减持0.72%</h3>
+<p>
+ | 来源: http://tssyzz.zhijiaow.com/blog/20260606-196.shtml
+</p>
+
+<h3>内蒙古：鼓励使用保障性住房再贷款收购存量商品房用作保障性住房等</h3>
+<p>
+ | 来源: http://www.yx-gas.com/blog/20260606-324.shtml
+</p>
+
+<h3>中远海能：投资总额为人民币64.45亿元建造4艘LNG船舶</h3>
+<p>
+ | 来源: http://www.q345fjg.cn/blog/20260606-401.shtml
+</p>
+
+<h3>科力尔：设立注册资本1000万元控股孙公司 持股70%</h3>
+<p>
+ | 来源: http://fastchina.net/blog/20260606-305.shtml
+</p>
+
+<h3>九洲药业：克立硼罗原料药获上市批准，累计研发投入约310万元</h3>
+<p>
+ | 来源: http://www.fastchina.net/blog/20260606-962.shtml
+</p>
+
+<h3>老虎国际：一季度营收1.55亿美元 同比增长26.3%</h3>
+<p>
+ | 来源: http://tangshanyuanzhuo.zhijiaow.com/blog/20260606-949.shtml
+</p>
+
+<h3>广西能源：广西贺州抽水蓄能电站项目获核准批复</h3>
+<p>
+ | 来源: http://wheat.org.cn/blog/20260606-682.shtml
+</p>
+
+<h3>文远知行携手Uber落地西班牙首个Robotaxi服务</h3>
+<p>
+ | 来源: http://www.dongmaopipe.com/blog/20260606-976.shtml
+</p>
+
+<h3>上海建工：股东国盛集团累计减持0.22%股份</h3>
+<p>
+ | 来源: http://www.huhangonline.com/blog/20260606-329.shtml
+</p>
+
+<h3>五矿发展：李智聪先生担任公司董事长</h3>
+<p>
+ | 来源: http://www.rzjupian.com/blog/20260606-577.shtml
+</p>
+
+<h3>包头稀交所：今日稀土主流产品价格稳中有涨</h3>
+<p>
+ | 来源: http://tangshanyuanzhuo.zhijiaow.com/blog/20260606-166.shtml
+</p>
+
+<h3>SK海力士计划五年内将晶圆产能翻番</h3>
+<p>
+ | 来源: http://cnc.js.cn/blog/20260606-960.shtml
+</p>
+
+<h3>毅昌科技：协议转让事项尚需合规性审查</h3>
+<p>
+ | 来源: http://chinajinxian.com/blog/20260606-784.shtml
+</p>
+
+<h3>今日全国碳市场收盘价81.84元/吨，较前一日下跌0.21%</h3>
+<p>
+ | 来源: http://www.migun.net.cn/blog/20260606-341.shtml
+</p>
+
+<h3>海博思创在巴尔干地区签约超1GWh订单</h3>
+<p>
+ | 来源: http://tjqgzy.zhijiaow.com/blog/20260606-484.shtml
+</p>
+
+<h3>在岸人民币兑美元收盘较上一交易日上涨28点</h3>
+<p>
+ | 来源: http://en.onmillion-nano.com/blog/20260606-322.shtml
+</p>
+
+<h3>恒瑞医药：5月未回购，累计已回购金额7.72亿元</h3>
+<p>
+ | 来源: http://jnjsxy.zhijiaow.com/blog/20260606-410.shtml
+</p>
+
+<h3>中国香港4月零售销售额年率8.6%，前值12.80%</h3>
+<p>
+ | 来源: http://www.dcsz.com.cn/blog/20260606-618.shtml
+</p>
