@@ -1,0 +1,502 @@
+<h1> AI Builders Digest 今日热点快报</h1>
+<p><strong>2026年06月07日 21时03分07秒(UTC+8)</strong></p>
+<hr>
+<h3>六种不适通过热敷可缓解</h3>
+<p>
+ | 来源: http://qianyanpeixun.com/blog/20260607-491.shtml
+</p>
+
+<h3>三种姿势久坐最伤腰</h3>
+<p>
+ | 来源: http://linyejianzhu.com/blog/20260607-396.shtml
+</p>
+
+<h3>每周锻炼4至5次可延缓心血管衰老</h3>
+<p>
+ | 来源: http://yerenquan.com/blog/20260607-594.shtml
+</p>
+
+<h3>抗衰老最好的方式</h3>
+<p>
+ | 来源: http://jnmglsjj.com/blog/20260607-301.shtml
+</p>
+
+<h3>治高血压避开五个误区</h3>
+<p>
+ | 来源: http://qddzxx.zhijiaow.com/blog/20260607-309.shtml
+</p>
+
+<h3>坐月子不能吃蔬果喝牛奶？</h3>
+<p>
+ | 来源: http://wheat.org.cn/blog/20260607-802.shtml
+</p>
+
+<h3>把握好小满这个养生转折点</h3>
+<p>
+ | 来源: http://wfygfs.com/blog/20260607-545.shtml
+</p>
+
+<h3>哪些因素影响人体衰老趋势</h3>
+<p>
+ | 来源: http://zzfufengyuanfood.com/blog/20260607-449.shtml
+</p>
+
+<h3>保养身体 祛除湿气很重要</h3>
+<p>
+ | 来源: http://ainalisa.com/blog/20260607-705.shtml
+</p>
+
+<h3>万万没想到这个习惯能防癌</h3>
+<p>
+ | 来源: http://spacets.com/blog/20260607-180.shtml
+</p>
+
+<h3>千金难买老来瘦靠谱吗</h3>
+<p>
+ | 来源: http://www.dgyibiao.com/blog/20260607-221.shtml
+</p>
+
+<h3>这几个伤胃坏习惯你也有</h3>
+<p>
+ | 来源: http://hstpwj.com/blog/20260607-412.shtml
+</p>
+
+<h3>白领一族久坐五病缠身</h3>
+<p>
+ | 来源: http://sztytw.com/blog/20260607-790.shtml
+</p>
+
+<h3>饭后三个小动作防止血管堵塞</h3>
+<p>
+ | 来源: http://ahxrjjn.com/blog/20260607-858.shtml
+</p>
+
+<h3>垃圾睡眠比失眠更可怕</h3>
+<p>
+ | 来源: http://hanlonggf.com/blog/20260607-632.shtml
+</p>
+
+<h3>不同颜色尿液藏着健康大秘密</h3>
+<p>
+ | 来源: http://hzgph.com/blog/20260607-262.shtml
+</p>
+
+<h3>学好中医这十招肝好你也好</h3>
+<p>
+ | 来源: http://pr.suerda.com/blog/20260607-500.shtml
+</p>
+
+<h3>七个习惯让你老得更快</h3>
+<p>
+ | 来源: http://www.lqhbjk.com/blog/20260607-635.shtml
+</p>
+
+<h3>怎么把熬夜伤害降到最低</h3>
+<p>
+ | 来源: http://peiyinjie.com/blog/20260607-250.shtml
+</p>
+
+<h3>最补肾的泡脚时间</h3>
+<p>
+ | 来源: http://bxx888.com/blog/20260607-688.shtml
+</p>
+
+<h3>从晨尿能看男人健康</h3>
+<p>
+ | 来源: http://zizhihao.com/blog/20260607-336.shtml
+</p>
+
+<h3>容易引发口臭的4大疾病</h3>
+<p>
+ | 来源: http://158huojia.com/blog/20260607-915.shtml
+</p>
+
+<h3>反复尿频小心肾结核</h3>
+<p>
+ | 来源: http://gxzycj.com/blog/20260607-627.shtml
+</p>
+
+<h3>这五种病能帮身体排毒</h3>
+<p>
+ | 来源: http://hahtbdqn.com/blog/20260607-381.shtml
+</p>
+
+<h3>身体发出的肾虚信号</h3>
+<p>
+ | 来源: http://di-xing.com/blog/20260607-130.shtml
+</p>
+
+<h3>男人开始衰老的信号</h3>
+<p>
+ | 来源: http://wecobbs.com/blog/20260607-951.shtml
+</p>
+
+<h3>肚脐右边疼可能是这些病</h3>
+<p>
+ | 来源: http://xt.jxtswj.com/blog/20260607-846.shtml
+</p>
+
+<h3>越累越睡不着是怎么回事</h3>
+<p>
+ | 来源: http://shusongdai126.com/blog/20260607-604.shtml
+</p>
+
+<h3>喝酒时吃这些药会中毒</h3>
+<p>
+ | 来源: https://github.com/mikahls/back/tree/main
+</p>
+
+<h3>左眼跳财真的准吗</h3>
+<p>
+ | 来源: http://top1pos.com/blog/20260607-575.shtml
+</p>
+
+<h3>从耳朵看内脏健康</h3>
+<p>
+ | 来源: http://axetour.com/blog/20260607-690.shtml
+</p>
+
+<h3>这里长皱纹是肾不好</h3>
+<p>
+ | 来源: http://gxxfy888.com/blog/20260607-901.shtml
+</p>
+
+<h3>男性小便后别做1件事</h3>
+<p>
+ | 来源: http://sztytw.com/blog/20260607-459.shtml
+</p>
+
+<h3>女人体毛多是病吗</h3>
+<p>
+ | 来源: http://fu-express.com/blog/20260607-637.shtml
+</p>
+
+<h3>人体哪个部位细菌最多</h3>
+<p>
+ | 来源: http://www.dongmaopipe.com/blog/20260607-130.shtml
+</p>
+
+<h3>这种脸色可能预示肝变硬</h3>
+<p>
+ | 来源: http://jjmy.zhijiaow.com/blog/20260607-505.shtml
+</p>
+
+<h3>胸部大可能是短命征兆</h3>
+<p>
+ | 来源: http://www.wftzjx.com/blog/20260607-396.shtml
+</p>
+
+<h3>男人变老的3大标志</h3>
+<p>
+ | 来源: http://yundahg.com/blog/20260607-732.shtml
+</p>
+
+<h3>身体出现5个症状赶紧排毒</h3>
+<p>
+ | 来源: http://dglky.com/blog/20260607-666.shtml
+</p>
+
+<h3>手这里红是肝不好</h3>
+<p>
+ | 来源: http://njxmly.com/blog/20260607-621.shtml
+</p>
+
+<h3>舌苔发黑竟是大病征兆</h3>
+<p>
+ | 来源: http://puycard.com/blog/20260607-554.shtml
+</p>
+
+<h3>口臭有80%是口腔的问题</h3>
+<p>
+ | 来源: http://petrol-coke.com/blog/20260607-129.shtml
+</p>
+
+<h3>舌头这样是有大病</h3>
+<p>
+ | 来源: http://njysfcyx.com/blog/20260607-850.shtml
+</p>
+
+<h3>脚趾透露出的癌信号</h3>
+<p>
+ | 来源: http://haijing888.com/blog/20260607-855.shtml
+</p>
+
+<h3>看看你最容易得什么癌</h3>
+<p>
+ | 来源: http://hbgale.com/blog/20260607-561.shtml
+</p>
+
+<h3>这样感冒可能是癌症</h3>
+<p>
+ | 来源: http://hnhuangpai.com/blog/20260607-702.shtml
+</p>
+
+<h3>喝酒脸红是肝不好吗？</h3>
+<p>
+ | 来源: http://qdstor.com/blog/20260607-413.shtml
+</p>
+
+<h3>一个动作看出前列腺癌</h3>
+<p>
+ | 来源: http://kunshengjituan.com/blog/20260607-283.shtml
+</p>
+
+<h3>哪种排便习惯预示肠癌</h3>
+<p>
+ | 来源: http://zzhengjian.com/blog/20260607-563.shtml
+</p>
+
+<h3>没原因的乏力可能是肝癌信号</h3>
+<p>
+ | 来源: http://qdstor.com/blog/20260607-270.shtml
+</p>
+
+<h3>老咬到舌头小心患癌</h3>
+<p>
+ | 来源: http://sdtkyla.com/blog/20260607-913.shtml
+</p>
+
+<h3>一天排便几次是恶癌先兆</h3>
+<p>
+ | 来源: http://www.shrenzhong.cn/blog/20260607-945.shtml
+</p>
+
+<h3>肝癌信号能用眼看出来</h3>
+<p>
+ | 来源: http://gzmzxjf.com/blog/20260607-797.shtml
+</p>
+
+<h3>身上有痣千万别抓</h3>
+<p>
+ | 来源: http://www.skygp.com/blog/20260607-452.shtml
+</p>
+
+<h3>2件事自测所有癌症</h3>
+<p>
+ | 来源: http://yixitouzi.com/blog/20260607-457.shtml
+</p>
+
+<h3>男人这里肿可能是癌症</h3>
+<p>
+ | 来源: http://yhzpw.net/blog/20260607-627.shtml
+</p>
+
+<h3>红色炎症预示哪些癌症</h3>
+<p>
+ | 来源: http://sdhgepe.com/blog/20260607-829.shtml
+</p>
+
+<h3>这种肚子疼是肝癌征兆</h3>
+<p>
+ | 来源: http://vcoio.com/blog/20260607-536.shtml
+</p>
+
+<h3>痔疮会癌变吗</h3>
+<p>
+ | 来源: http://ytywl.com/blog/20260607-283.shtml
+</p>
+
+<h3>闻屁味可以防癌</h3>
+<p>
+ | 来源: http://sdyujie.zhijiaow.com/blog/20260607-572.shtml
+</p>
+
+<h3>两种人患癌可能会自愈</h3>
+<p>
+ | 来源: http://zgyphy.com/blog/20260607-358.shtml
+</p>
+
+<h3>癌症可以不治愈</h3>
+<p>
+ | 来源: http://bsd.zhijiaow.com/blog/20260607-944.shtml
+</p>
+
+<h3>睡眠和癌症有重要关联</h3>
+<p>
+ | 来源: http://yqfk.jieyue.net/blog/20260607-467.shtml
+</p>
+
+<h3>夫妻间真会传染癌症吗</h3>
+<p>
+ | 来源: http://xxgrfs.com/blog/20260607-692.shtml
+</p>
+
+<h3>这样口臭可能是肺癌</h3>
+<p>
+ | 来源: http://gsyxlx.com/blog/20260607-353.shtml
+</p>
+
+<h3>腰疼可能是肝癌征兆</h3>
+<p>
+ | 来源: http://sdhgepe.com/blog/20260607-228.shtml
+</p>
+
+<h3>抗生素要吃够疗程</h3>
+<p>
+ | 来源: http://www.chinanewman.cn/blog/20260607-133.shtml
+</p>
+
+<h3>生姜能治很多常见病</h3>
+<p>
+ | 来源: http://baijiadui.com/blog/20260607-328.shtml
+</p>
+
+<h3>五种中药媲美人参</h3>
+<p>
+ | 来源: http://sjzhs.zhijiaow.com/blog/20260607-612.shtml
+</p>
+
+<h3>感冒药和退烧药别混用</h3>
+<p>
+ | 来源: http://hengxing.zhijiaow.com/blog/20260607-322.shtml
+</p>
+
+<h3>巧用生姜能治很多小病</h3>
+<p>
+ | 来源: http://rzjs.zhijiaow.com/blog/20260607-305.shtml
+</p>
+
+<h3>巧用一种中药泡水能除口臭</h3>
+<p>
+ | 来源: http://gzqqdn.com/blog/20260607-917.shtml
+</p>
+
+<h3>吃什么最补肾</h3>
+<p>
+ | 来源: http://ediguanjia.com/blog/20260607-977.shtml
+</p>
+
+<h3>这些中药能美颜</h3>
+<p>
+ | 来源: http://www.cnc.js.cn/blog/20260607-391.shtml
+</p>
+
+<h3>补肾的最佳食物组合</h3>
+<p>
+ | 来源: http://lnzhuye.com/blog/20260607-366.shtml
+</p>
+
+<h3>维生素E外用奇效</h3>
+<p>
+ | 来源: http://qhdsb.zhijiaow.com/blog/20260607-654.shtml
+</p>
+
+<h3>巧用生姜能治很多病</h3>
+<p>
+ | 来源: http://yhgsyy.com/blog/20260607-547.shtml
+</p>
+
+<h3>药片为什么花花绿绿</h3>
+<p>
+ | 来源: http://cdjcjscl.com/blog/20260607-202.shtml
+</p>
+
+<h3>未来医疗100强评选在沪揭晓</h3>
+<p>
+ | 来源: http://zzhengjian.com/blog/20260607-489.shtml
+</p>
+
+<h3>2026年政府工作报告，医药相关重点来了</h3>
+<p>
+ | 来源: http://qddzxx.zhijiaow.com/blog/20260607-163.shtml
+</p>
+
+<h3>赛诺菲15.3亿美元引进FIC新药</h3>
+<p>
+ | 来源: http://www.carinway.com/blog/20260607-148.shtml
+</p>
+
+<h3>全球首次！干细胞疗法获批治疗帕金森</h3>
+<p>
+ | 来源: http://yzugb.yuyangsoft.com/blog/20260607-990.shtml
+</p>
+
+<h3>礼来减重新药在中国获批关键3期临床</h3>
+<p>
+ | 来源: http://njysfcyx.com/blog/20260607-914.shtml
+</p>
+
+<h3>默沙东「来特莫韦」新适应症获批，儿童可用至HSCT后200天</h3>
+<p>
+ | 来源: http://scjdfh.com/blog/20260607-426.shtml
+</p>
+
+<h3>云顶新耀销售超十亿元的肾病药被强仿后，广州知识产权法院裁定停止侵权</h3>
+<p>
+ | 来源: http://futehoncn.com/blog/20260607-818.shtml
+</p>
+
+<h3>阿斯利康首创高血压新药国内报上市</h3>
+<p>
+ | 来源: http://yzugb.yuyangsoft.com/blog/20260607-391.shtml
+</p>
+
+<h3>世界首款“女性伟哥”，在争议中获批治疗65岁以下女性HSDD</h3>
+<p>
+ | 来源: http://pieasedtools.com/blog/20260607-860.shtml
+</p>
+
+<h3>减肥药又要大降价了</h3>
+<p>
+ | 来源: http://huanqiu.zhijiaow.com/blog/20260607-190.shtml
+</p>
+
+<h3>帮10名患者摆脱胰岛素，糖尿病治愈疗法最快今年上市</h3>
+<p>
+ | 来源: http://sh-lcj.com/blog/20260607-396.shtml
+</p>
+
+<h3>口服减肥药orforglipron头对头研究效果优于口服司美格鲁肽</h3>
+<p>
+ | 来源: http://szta-pack.com/blog/20260607-864.shtml
+</p>
+
+<h3>赛诺菲自免药王收入182亿美元，罗氏肿瘤药物创收153 亿瑞士法郎</h3>
+<p>
+ | 来源: http://ef360hr.com/blog/20260607-710.shtml
+</p>
+
+<h3>首个外用JAK抑制剂，白癜风乳膏国内获批上市</h3>
+<p>
+ | 来源: http://lyt28.com/blog/20260607-353.shtml
+</p>
+
+<h3>拜耳「达罗他胺」新适应症在国内获批上市</h3>
+<p>
+ | 来源: http://shenwater.com/blog/20260607-804.shtml
+</p>
+
+<h3>司美格鲁肽大卖 346 亿美元，核药Pluvicto 收入 20 亿美元</h3>
+<p>
+ | 来源: http://dglky.com/blog/20260607-819.shtml
+</p>
+
+<h3>零氪真实世界证据转化与监管科学联合实验室正式揭牌 共推医学转化与科学监管协同创新</h3>
+<p>
+ | 来源: http://huizaohui.com/blog/20260607-940.shtml
+</p>
+
+<h3>两款印度药物被暂停进口到中国，一些中国药企或受波及</h3>
+<p>
+ | 来源: http://www.rzjupian.com/blog/20260607-180.shtml
+</p>
+
+<h3>口服减重药美国上市，每月治疗费最低149美元</h3>
+<p>
+ | 来源: http://ycmoteng.com/blog/20260607-707.shtml
+</p>
+
+<h3>信达生物三款肺癌少见靶点创新药正式纳入医保</h3>
+<p>
+ | 来源: http://yqrzcjs.com/blog/20260607-821.shtml
+</p>
+
+<h3>新版医保目录更新，调入 调出 支付范围变化</h3>
+<p>
+ | 来源: http://jjyanlin.com/blog/20260607-811.shtml
+</p>
+
+<h3>2026 年，有望在国内获批的 20 款重磅新药</h3>
+<p>
+ | 来源: http://hcsly.com/blog/20260607-445.shtml
+</p>

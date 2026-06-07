@@ -1,0 +1,502 @@
+<h1> AI Builders Digest 今日热点快报</h1>
+<p><strong>2026年06月07日 20时57分38秒(UTC+8)</strong></p>
+<hr>
+<h3>香港地铁东铁线有人进入路轨受重伤，乘客：列车停了一个多小时，转乘接驳巴士回家</h3>
+<p>
+ | 来源: http://cxfgfj.com/blog/20260607-973.shtml
+</p>
+
+<h3>火光冲天！香港大埔一回收场起火，已致3人受伤</h3>
+<p>
+ | 来源: http://jjyanlin.com/blog/20260607-811.shtml
+</p>
+
+<h3>迪拜跌倒，香港吃饱</h3>
+<p>
+ | 来源: http://hengaodebj.com/blog/20260607-986.shtml
+</p>
+
+<h3>香港宏福苑火灾“人为原因”公布</h3>
+<p>
+ | 来源: http://puycard.com/blog/20260607-367.shtml
+</p>
+
+<h3>华裔脱口秀演员欧阳万成再回香港宣传新电影</h3>
+<p>
+ | 来源: http://jhtkdxh.com/blog/20260607-396.shtml
+</p>
+
+<h3>香港码头惊现一具女性浮尸，身上绑有砖头</h3>
+<p>
+ | 来源: http://sjzez.zhijiaow.com/blog/20260607-168.shtml
+</p>
+
+<h3>2400元四天三晚游香港？结果遭商家扣留推销数小时，还禁拍照交流</h3>
+<p>
+ | 来源: http://xhhecheng.com/blog/20260607-875.shtml
+</p>
+
+<h3>长和向巴拿马政府索赔20亿美元</h3>
+<p>
+ | 来源: http://kongtiaojiafu.com/blog/20260607-664.shtml
+</p>
+
+<h3>香港学者：中东战事或令全球资金来港避险</h3>
+<p>
+ | 来源: http://njxmly.com/blog/20260607-386.shtml
+</p>
+
+<h3>何伟豪家属，获发615万港元</h3>
+<p>
+ | 来源: http://cnc.js.cn/blog/20260607-231.shtml
+</p>
+
+<h3>前TVB主播转行做刑警破获37年悬案！靠1枚指纹锁定杀人犯，网友：真港剧大女主！</h3>
+<p>
+ | 来源: http://gxxfy888.com/blog/20260607-313.shtml
+</p>
+
+<h3>事关巴拿马港口！李嘉诚旗下长和再采取行动</h3>
+<p>
+ | 来源: http://www.renzhong-green.com/blog/20260607-151.shtml
+</p>
+
+<h3>中国，又一座3万亿城市诞生</h3>
+<p>
+ | 来源: http://xsjinzun.com/blog/20260607-461.shtml
+</p>
+
+<h3>巴拿马强行接管港口，长和公告：强烈反对</h3>
+<p>
+ | 来源: http://zhuolvfilter.com/blog/20260607-959.shtml
+</p>
+
+<h3>巴拿马强行接管长和两港口，长和：强烈反对</h3>
+<p>
+ | 来源: http://ahhnxs.com/blog/20260607-702.shtml
+</p>
+
+<h3>港女嫁内地男成新潮流，港媒解析原因</h3>
+<p>
+ | 来源: http://jnmglsjj.com/blog/20260607-921.shtml
+</p>
+
+<h3>23岁香港女警在警署内身亡，疑用配枪自杀</h3>
+<p>
+ | 来源: http://www.hrbrush.com/blog/20260607-635.shtml
+</p>
+
+<h3>巴拿马强行接管长和旗下两港口，港府严正抗议</h3>
+<p>
+ | 来源: http://zthyym.com/blog/20260607-787.shtml
+</p>
+
+<h3>何时能回家？捐款有多少？港府回应大埔宏福苑最新情况</h3>
+<p>
+ | 来源: http://lyky-print.com/blog/20260607-533.shtml
+</p>
+
+<h3>6岁英歌小女孩香港闹春：与李家超会面握手</h3>
+<p>
+ | 来源: http://hairpins88.com/blog/20260607-237.shtml
+</p>
+
+<h3>大湾区航空一航班飞到台湾后，空中盘旋数圈紧急折返香港</h3>
+<p>
+ | 来源: http://wuxinchanyuan.com/blog/20260607-980.shtml
+</p>
+
+<h3>出席“新春国际汇演之夜”，李家超送上马年祝福</h3>
+<p>
+ | 来源: http://hnxywhcmyxgs.com/blog/20260607-583.shtml
+</p>
+
+<h3>李家超逛市场买年花，向市民拜年</h3>
+<p>
+ | 来源: http://songwenmushan.com/blog/20260607-238.shtml
+</p>
+
+<h3>李家超：拓展黄金交易中心，希望黄金交易将来做到像股票一样方便</h3>
+<p>
+ | 来源: http://jzlzjz.com/blog/20260607-784.shtml
+</p>
+
+<h3>李家超发表农历新年贺辞</h3>
+<p>
+ | 来源: http://en.onmillion-nano.com/blog/20260607-247.shtml
+</p>
+
+<h3>严正交涉！外交部驻港公署约见欧美机构负责人</h3>
+<p>
+ | 来源: http://ziboaowei.com/blog/20260607-563.shtml
+</p>
+
+<h3>李家超：《白皮书》具有“一锤定音”的指导意义</h3>
+<p>
+ | 来源: http://www.chinafire119.cn/blog/20260607-754.shtml
+</p>
+
+<h3>“港女北嫁”攀升，什么在影响香港女性的选择？</h3>
+<p>
+ | 来源: http://lfboheng.com/blog/20260607-869.shtml
+</p>
+
+<h3>被香港富豪李家诚告诽谤骚扰，女星周秀娜回应</h3>
+<p>
+ | 来源: http://bjcslc.com/blog/20260607-689.shtml
+</p>
+
+<h3>香港保安局长就黎智英案驳斥《华尔街日报》《华盛顿邮报》</h3>
+<p>
+ | 来源: http://lyhtdl.com/blog/20260607-534.shtml
+</p>
+
+<h3>巴拿马运河两港口能否运营，长和最新发声</h3>
+<p>
+ | 来源: http://njxmly.com/blog/20260607-143.shtml
+</p>
+
+<h3>香港回归社会青少年谈受鼓动参与黑暴：带来难以挽回的后果</h3>
+<p>
+ | 来源: http://www.xinghualou.net.cn/blog/20260607-895.shtml
+</p>
+
+<h3>澳门通过维护国家安全委员会法案</h3>
+<p>
+ | 来源: http://www.carinway.com/blog/20260607-948.shtml
+</p>
+
+<h3>四问鲁比奥</h3>
+<p>
+ | 来源: http://spacets.com/blog/20260607-243.shtml
+</p>
+
+<h3>外交部驻港公署致信《华尔街日报》，驳斥其涉黎智英案社论</h3>
+<p>
+ | 来源: http://lfboheng.com/blog/20260607-562.shtml
+</p>
+
+<h3>李家超：全力支持履行国安白皮书内容要求</h3>
+<p>
+ | 来源: http://bcrst.com/blog/20260607-273.shtml
+</p>
+
+<h3>外交部：香港法治不容撼动，任何外国无权说三道四</h3>
+<p>
+ | 来源: http://scdh888.com/blog/20260607-161.shtml
+</p>
+
+<h3>国新办发布涉港白皮书，李家超回应</h3>
+<p>
+ | 来源: http://qhdshg.zhijiaow.com/blog/20260607-542.shtml
+</p>
+
+<h3>新华社：以黎智英为首的反中乱港分子干尽坏事，此患不除香港不宁</h3>
+<p>
+ | 来源: http://ykfldxs.com/blog/20260607-682.shtml
+</p>
+
+<h3>法庭裁决揭穿黎智英“外国代理人”真面目</h3>
+<p>
+ | 来源: http://cqwenyan.com/blog/20260607-453.shtml
+</p>
+
+<h3>黎智英案宣判，曾违反国安法入狱港青讲述惨痛代价</h3>
+<p>
+ | 来源: http://shenwater.com/blog/20260607-759.shtml
+</p>
+
+<h3>港澳办：黎智英被严惩彰显法治伸张正义</h3>
+<p>
+ | 来源: http://xrzzc.com/blog/20260607-129.shtml
+</p>
+
+<h3>黎智英案庭审细节：自行步入被告栏，宣判后面色凝重</h3>
+<p>
+ | 来源: http://fastchina.net/blog/20260607-885.shtml
+</p>
+
+<h3>李家超：黎智英罪行滔天，恶贯满盈，被重判20年，大快人心</h3>
+<p>
+ | 来源: http://dgkunzheng.com/blog/20260607-558.shtml
+</p>
+
+<h3>黎智英判了，香港警方表态</h3>
+<p>
+ | 来源: http://muyingdianjiameng.com/blog/20260607-940.shtml
+</p>
+
+<h3>黎智英获刑20年，判决理由公布</h3>
+<p>
+ | 来源: http://www.hrbrush.com/blog/20260607-177.shtml
+</p>
+
+<h3>黎智英被判处20年有期徒刑</h3>
+<p>
+ | 来源: http://sdlwbp.com/blog/20260607-145.shtml
+</p>
+
+<h3>黎智英案将宣判，法院外人群通宵排队抢旁听位</h3>
+<p>
+ | 来源: http://www.twjmds.com/blog/20260607-158.shtml
+</p>
+
+<h3>“必须严惩，以儆效尤”，香港社会呼吁重判黎智英</h3>
+<p>
+ | 来源: http://xxgrfs.com/blog/20260607-884.shtml
+</p>
+
+<h3>香港商经局：巴拿马自毁国家信用，严重破坏国际贸易规则</h3>
+<p>
+ | 来源: http://yzugb.yuyangsoft.com/blog/20260607-390.shtml
+</p>
+
+<h3>港府召见巴拿马总领事，港专家：仲裁胜诉可查封巴政府境外资产</h3>
+<p>
+ | 来源: http://kangzhiyuan.zhijiaow.com/blog/20260607-521.shtml
+</p>
+
+<h3>长和就巴拿马港口案提起仲裁，港澳办：巴方裁决于法无稽、于理乖张，堪称荒谬至极</h3>
+<p>
+ | 来源: http://gsyxlx.com/blog/20260607-926.shtml
+</p>
+
+<h3>李家超：香港将首次制定五年规划</h3>
+<p>
+ | 来源: http://ycmoteng.com/blog/20260607-589.shtml
+</p>
+
+<h3>港科大校长叶玉如：AI不能替代医生</h3>
+<p>
+ | 来源: http://www.aktmembrane.com/blog/20260607-409.shtml
+</p>
+
+<h3>“反击”违宪裁定，李嘉诚旗下长和实业对巴拿马展开国际仲裁</h3>
+<p>
+ | 来源: http://muyingdianjiameng.com/blog/20260607-528.shtml
+</p>
+
+<h3>香港宏福苑大火两月后：一场尚未结束的告别</h3>
+<p>
+ | 来源: http://wheat.org.cn/blog/20260607-462.shtml
+</p>
+
+<h3>香港5800万日元劫案进展：6人被拘，含1名报案人，其疑为内应</h3>
+<p>
+ | 来源: http://zsny1818.com/blog/20260607-555.shtml
+</p>
+
+<h3>巴拿马裁定长和港口运营“违宪”，港府强烈反对</h3>
+<p>
+ | 来源: http://szzsh.com/blog/20260607-134.shtml
+</p>
+
+<h3>香港回应巴拿马涉港口有关裁决：坚决反对</h3>
+<p>
+ | 来源: http://pieasedtools.com/blog/20260607-860.shtml
+</p>
+
+<h3>香港警方：上环两男子被劫约5800万日元，正通缉两名涉案人员</h3>
+<p>
+ | 来源: http://dfyqfs.com/blog/20260607-153.shtml
+</p>
+
+<h3>香港名媛蔡天凤碎尸案，有新进展</h3>
+<p>
+ | 来源: http://621553.com/blog/20260607-689.shtml
+</p>
+
+<h3>曾国卫被免去香港政制及内地事务局局长职务</h3>
+<p>
+ | 来源: http://edu-energy.com/blog/20260607-183.shtml
+</p>
+
+<h3>香港影星梁小龙追悼会在深圳举办，周星驰敬赠花圈</h3>
+<p>
+ | 来源: http://sjzdszy.zhijiaow.com/blog/20260607-698.shtml
+</p>
+
+<h3>欧洲议会通过所谓“涉黎智英案决议”，外交部驻港公署强烈谴责</h3>
+<p>
+ | 来源: http://jjmy.zhijiaow.com/blog/20260607-492.shtml
+</p>
+
+<h3>梁小龙账号发告别信：请原谅我不辞而别</h3>
+<p>
+ | 来源: http://xtapi.jxtswj.com/blog/20260607-332.shtml
+</p>
+
+<h3>导演李力持发文悼念梁小龙</h3>
+<p>
+ | 来源: http://www.fastchina.net/blog/20260607-349.shtml
+</p>
+
+<h3>香港武打明星梁小龙去世，成龙发文悼念</h3>
+<p>
+ | 来源: http://www.shrenzhong.cn/blog/20260607-585.shtml
+</p>
+
+<h3>外交部驻港公署正告美方：坚决反对美国个别政客炮制涉港恶法</h3>
+<p>
+ | 来源: http://lfboheng.com/blog/20260607-679.shtml
+</p>
+
+<h3>男子带刀劫持人质被警方两枪击毙，香港通报详情</h3>
+<p>
+ | 来源: http://rangquanob.com/blog/20260607-547.shtml
+</p>
+
+<h3>港议员：黎智英求情理由苍白无悔意</h3>
+<p>
+ | 来源: http://zjadb.com/blog/20260607-723.shtml
+</p>
+
+<h3>黎智英等9名被告向法院求情，庭外大量警员戒备</h3>
+<p>
+ | 来源: http://xxgrfs.com/blog/20260607-470.shtml
+</p>
+
+<h3>李慧琼当选香港立法会主席</h3>
+<p>
+ | 来源: http://petrol-coke.com/blog/20260607-208.shtml
+</p>
+
+<h3>融创中国：香港高等法院驳回针对公司的清盘呈请</h3>
+<p>
+ | 来源: http://sdlwbp.com/blog/20260607-120.shtml
+</p>
+
+<h3>香港强烈谴责英媒就黎智英健康作不实报道</h3>
+<p>
+ | 来源: http://zhijingdi.com/blog/20260607-224.shtml
+</p>
+
+<h3>香港第八届立法会议员宣誓就职</h3>
+<p>
+ | 来源: http://wxybjn.com/blog/20260607-494.shtml
+</p>
+
+<h3>李家超：对新一届立法会寄予厚望</h3>
+<p>
+ | 来源: http://www.gdgjy.com/blog/20260607-626.shtml
+</p>
+
+<h3>90名香港立法会议员逐一宣誓，李家超提三点期望</h3>
+<p>
+ | 来源: http://www.kayin.com.cn/blog/20260607-395.shtml
+</p>
+
+<h3>李家超：祝凤凰卫视观众四季平安，事事顺利</h3>
+<p>
+ | 来源: http://qddzxx.zhijiaow.com/blog/20260607-876.shtml
+</p>
+
+<h3>谋势而动，融生未来：在颠覆的时代里定义自己</h3>
+<p>
+ | 来源: http://payeqy.com/blog/20260607-702.shtml
+</p>
+
+<h3>遗体修复，丧礼，破地狱：香港大火30天</h3>
+<p>
+ | 来源: http://huiranhg.com/blog/20260607-154.shtml
+</p>
+
+<h3>港澳办启用新办公楼</h3>
+<p>
+ | 来源: http://hbzwd88.com/blog/20260607-451.shtml
+</p>
+
+<h3>香港大埔火灾后的圣诞节，受灾居民过得怎么样？</h3>
+<p>
+ | 来源: http://shianguoji2016.com/blog/20260607-545.shtml
+</p>
+
+<h3>黎智英被绳之以法，美西方究竟在香港埋了多少雷？</h3>
+<p>
+ | 来源: http://spacets.com/blog/20260607-432.shtml
+</p>
+
+<h3>李家超出席香港殉职消防员丧礼</h3>
+<p>
+ | 来源: http://www.dongmaopipe.com/blog/20260607-130.shtml
+</p>
+
+<h3>香港殉职消防员何伟豪设灵，李家超等人到场悼念</h3>
+<p>
+ | 来源: http://sxwxt.com/blog/20260607-823.shtml
+</p>
+
+<h3>为黎智英“鸣冤叫屈”的都是何等货色？</h3>
+<p>
+ | 来源: http://rblof.com/blog/20260607-186.shtml
+</p>
+
+<h3>香港发生大劫案，4人抢走10亿日元</h3>
+<p>
+ | 来源: http://lnzhuye.com/blog/20260607-241.shtml
+</p>
+
+<h3>李家超：全面查清大埔火灾真相，追究责任到底，不允许悲剧再发生</h3>
+<p>
+ | 来源: http://hcsly.com/blog/20260607-731.shtml
+</p>
+
+<h3>黎智英祸港资金从何而来？</h3>
+<p>
+ | 来源: http://duihuansc.com/blog/20260607-791.shtml
+</p>
+
+<h3>梁振英直斥《苹果日报》是香港之耻，黎智英遗害一整代香港青少年</h3>
+<p>
+ | 来源: http://lyky-print.com/blog/20260607-945.shtml
+</p>
+
+<h3>里程碑意义裁决！这条黎智英与美方通信被重点关注</h3>
+<p>
+ | 来源: http://hbzwd88.com/blog/20260607-676.shtml
+</p>
+
+<h3>新华社评黎智英案：反中乱港罪无可恕，依法惩治正当正义</h3>
+<p>
+ | 来源: http://meijpic.com/blog/20260607-882.shtml
+</p>
+
+<h3>黎智英并没早前个别媒体提及的身体虚弱情况</h3>
+<p>
+ | 来源: http://superfiber365.com/blog/20260607-912.shtml
+</p>
+
+<h3>中联办就黎智英被定罪发声：强烈谴责外部势力干预抹黑香港法治和司法</h3>
+<p>
+ | 来源: http://bcrst.com/blog/20260607-898.shtml
+</p>
+
+<h3>驻港国家安全公署：坚决支持香港特区依法惩治黎智英</h3>
+<p>
+ | 来源: http://www.dcsz.com.cn/blog/20260607-434.shtml
+</p>
+
+<h3>黎智英被定罪</h3>
+<p>
+ | 来源: http://zhiquck.com/blog/20260607-776.shtml
+</p>
+
+<h3>“黑暴”时期遭袭市民发声：希望重判黎智英</h3>
+<p>
+ | 来源: http://shianguoji2016.com/blog/20260607-956.shtml
+</p>
+
+<h3>乱港民主党正式解散</h3>
+<p>
+ | 来源: http://www.hrbrush.com/blog/20260607-746.shtml
+</p>
+
+<h3>香港警方国安处拘捕9名涉嫌“非法操练”男子，查获气枪等物</h3>
+<p>
+ | 来源: http://qdsjxjsxx.zhijiaow.com/blog/20260607-515.shtml
+</p>
+
+<h3>港警首次以“非法操练”罪拘捕9人，有人曾现身大埔火灾现场</h3>
+<p>
+ | 来源: http://hbmmylgj.com/blog/20260607-595.shtml
+</p>
