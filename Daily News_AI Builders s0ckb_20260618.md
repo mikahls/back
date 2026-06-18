@@ -1,0 +1,502 @@
+<h1> AI Builders Digest 今日热点快报</h1>
+<p><strong>2026年06月18日 05时10分21秒(UTC+8)</strong></p>
+<hr>
+<h3>以总理：无论有没有协议，伊朗都不会拥有核武器</h3>
+<p>
+ | 来源: http://fsgleeg.com/m/20260618-655.shtml
+</p>
+
+<h3>欧洲展示多型隐身无人机，六代机受挫后的“救命稻草”？</h3>
+<p>
+ | 来源: http://haojida.com/m/20260617-364.shtml
+</p>
+
+<h3>1454亿市值狂欢背后，亿纬锂能“烧钱”赶路 | 风眼观察</h3>
+<p>
+ | 来源: http://pdzjzx.zhijiaow.com/m/20260617-491.shtml
+</p>
+
+<h3>微软考虑使用DeepSeek开发低成本Copilot软件</h3>
+<p>
+ | 来源: http://www.shanghaiott.com/m/20260618-820.shtml
+</p>
+
+<h3>Anthropic未经许可向外国人提供AI模型或将被处罚</h3>
+<p>
+ | 来源: http://ccxtdt.com/m/20260618-447.shtml
+</p>
+
+<h3>风靡全球的《宝可梦GO》，把300亿张照片卖给了美国军方</h3>
+<p>
+ | 来源: http://www.jsxxwy.com/m/20260618-706.shtml
+</p>
+
+<h3>以后新能源车没电就没刹车了？</h3>
+<p>
+ | 来源: http://www.zhijiandaxi.com/m/20260617-207.shtml
+</p>
+
+<h3>最火90后：投资人疯抢林俊旸</h3>
+<p>
+ | 来源: http://www.dlsccs.com/m/20260617-426.shtml
+</p>
+
+<h3>没翻两页就被AI味熏倒，“不是人写的书”正在批量涌入书店</h3>
+<p>
+ | 来源: http://www.saner.cn/m/20260618-169.shtml
+</p>
+
+<h3>实测AI版支付宝：一个半成品，和潜在的交互革命</h3>
+<p>
+ | 来源: http://oa.jieyue.net/m/20260618-803.shtml
+</p>
+
+<h3>SpaceX的终极赌注：从火箭公司到“有意识的太阳”</h3>
+<p>
+ | 来源: http://www.shfjki.com/m/20260618-182.shtml
+</p>
+
+<h3>苹果2027新品蓝图曝光：摄像头耳机、二代折叠屏、20周年纪念iPhone齐发</h3>
+<p>
+ | 来源: http://jsxxwy.com/m/20260618-572.shtml
+</p>
+
+<h3>云台相机大战！影石Luna Ultra降价：国补后3599元</h3>
+<p>
+ | 来源: http://yx-gas.com/m/20260618-870.shtml
+</p>
+
+<h3>苹果首款折叠屏手机Phone Fold上市延后至明年初</h3>
+<p>
+ | 来源: http://ccdhzh.com/m/20260618-550.shtml
+</p>
+
+<h3>荣耀X80 Pro Max四色外观公布：元气橙双拼设计</h3>
+<p>
+ | 来源: http://www.etalentlink.com/m/20260618-662.shtml
+</p>
+
+<h3>3048元起 影石Ace Pro 2冰川白发布：打印3英寸照片</h3>
+<p>
+ | 来源: http://sz.sawenow.com/m/20260618-266.shtml
+</p>
+
+<h3>大疆发布Osmo Pocket 4P：3799元起</h3>
+<p>
+ | 来源: http://www.sxsslgcxh.com/m/20260618-997.shtml
+</p>
+
+<h3>古尔曼：苹果仍在筹备三个尚未发布iOS 27新功能</h3>
+<p>
+ | 来源: http://www.tzqc.js.cn/m/20260618-541.shtml
+</p>
+
+<h3>1周销量21万台 华为Mate 80系列销量快破千万台</h3>
+<p>
+ | 来源: http://www.jsxxwy.com/m/20260618-910.shtml
+</p>
+
+<h3>荣耀X80 Pro Max官宣：11000mAh大电池</h3>
+<p>
+ | 来源: http://ccdhzh.com/m/20260618-810.shtml
+</p>
+
+<h3>茅山亮相第四届香港文博会： 以道文化为纽带，探索中华文化国际传播新表达</h3>
+<p>
+ | 来源: http://www.xl-2.com/m/20260618-806.shtml
+</p>
+
+<h3>中国民歌正在成为世界BGM！龚琳娜分享中国民歌如何被全球听见</h3>
+<p>
+ | 来源: http://www.szhbjt.com/m/20260618-223.shtml
+</p>
+
+<h3>做好“文化出海”的情感翻译！陈贝儿分享她眼中的中国故事</h3>
+<p>
+ | 来源: http://borntime.com/m/20260618-511.shtml
+</p>
+
+<h3>把中国文化穿成“国际时尚”！陆仙人讲述从田埂到戛纳的文化出海之路</h3>
+<p>
+ | 来源: http://www.nkw1688.com/m/20260618-980.shtml
+</p>
+
+<h3>去大峡谷捞书？世界读书日张家界又双叒花式宠游客</h3>
+<p>
+ | 来源: http://www.wmh.cn/m/20260618-257.shtml
+</p>
+
+<h3>ID.ERA 9X销量刚起飞，ID.ERA 8X就跟上了，大众增程又出牌</h3>
+<p>
+ | 来源: http://www.naiweitech.com/m/20260617-151.shtml
+</p>
+
+<h3>本田危机“三宗罪”，三部敏宏躲过一劫</h3>
+<p>
+ | 来源: http://www.thuni-h.com/m/20260618-469.shtml
+</p>
+
+<h3>中汽协：内需承压，出口高增长</h3>
+<p>
+ | 来源: http://www.migun.net.cn/m/20260617-979.shtml
+</p>
+
+<h3>国产全新一代奔驰C级纯电长轴距申报图！800V纯电平台，设计大变</h3>
+<p>
+ | 来源: http://hengaodebj.com/m/20260618-167.shtml
+</p>
+
+<h3>没有最重只有更重，电车重量直逼卡车</h3>
+<p>
+ | 来源: http://pdzjzx.zhijiaow.com/m/20260618-808.shtml
+</p>
+
+<h3>合资新车丨大众“8系”来了，奔驰C级上纯电，全新奥迪Q3L很有料</h3>
+<p>
+ | 来源: http://www.qiyitech.cn/m/20260618-240.shtml
+</p>
+
+<h3>家越07申报图正式曝光</h3>
+<p>
+ | 来源: http://www.hengaodebj.com/m/20260618-431.shtml
+</p>
+
+<h3>D级轿车比亚迪大汉来了，30万级硬刚BBA</h3>
+<p>
+ | 来源: http://www.ccxtdt.com/m/20260617-217.shtml
+</p>
+
+<h3>10几万、混动、旅行车，领克07GT全给你了</h3>
+<p>
+ | 来源: http://www.jsxdaf.com/m/20260618-471.shtml
+</p>
+
+<h3>中国人取名字，为什么那么喜欢参考《诗经》？</h3>
+<p>
+ | 来源: http://www.hengaodebj.com/m/20260618-163.shtml
+</p>
+
+<h3>11年才换代的奥迪Q7，还值得被新势力搬上发布会吗？</h3>
+<p>
+ | 来源: http://pdzjzx.zhijiaow.com/m/20260618-177.shtml
+</p>
+
+<h3>北京81申报图 将于8月1日正式上市</h3>
+<p>
+ | 来源: http://www.jingtouwang.com.cn/m/20260617-423.shtml
+</p>
+
+<h3>新能源收养路费，油车就好卖了？网友：酷狗收年费，我也不听磁带</h3>
+<p>
+ | 来源: http://www.huaiheedu.com/m/20260618-801.shtml
+</p>
+
+<h3>「韩系动向1779」燃油车套上“电车脸”？起亚XCeed改款发布</h3>
+<p>
+ | 来源: http://www.yf-syc.com/m/20260618-311.shtml
+</p>
+
+<h3>美国为何只给中国吉利控股旗下的沃尔沃“免死金牌”？</h3>
+<p>
+ | 来源: http://www.etalentlink.com/m/20260618-965.shtml
+</p>
+
+<h3>吉利银河星舰7 EV正式上市！9.98万元起+605km续航</h3>
+<p>
+ | 来源: http://www.fastchina.net/m/20260618-367.shtml
+</p>
+
+<h3>体验MG 4X智能座舱，表现够不够智能？</h3>
+<p>
+ | 来源: http://www.zkam.com/m/20260618-161.shtml
+</p>
+
+<h3>瑞虎8家族三车齐发，限时价9.29万起，冠军品质不容错过</h3>
+<p>
+ | 来源: http://www.dragon-bite.com/m/20260618-193.shtml
+</p>
+
+<h3>赛豆科技：一个新品牌的诞生</h3>
+<p>
+ | 来源: http://wh.kkpark.cc/m/20260618-488.shtml
+</p>
+
+<h3>Jeep再度官宣国产，布局新能源越野车型，还有戏么？</h3>
+<p>
+ | 来源: http://www.jiamaofood.com/m/20260618-854.shtml
+</p>
+
+<h3>姆巴佩成历史第3人！法国3-1斩获开门红</h3>
+<p>
+ | 来源: http://www.jsxxwy.com/m/20260618-188.shtml
+</p>
+
+<h3>姆巴佩13球追平方丹，登顶法国世界杯射手榜</h3>
+<p>
+ | 来源: http://www.hidier.com/m/20260618-129.shtml
+</p>
+
+<h3>6战2胜4平！世界杯前6战，亚洲球队仍未尝败绩</h3>
+<p>
+ | 来源: http://www.qzj99.com/m/20260618-981.shtml
+</p>
+
+<h3>伊朗球员走到世界杯舞台有多不容易，秘密王牌凭父亲DNA报告才拿到参赛资格</h3>
+<p>
+ | 来源: http://www.fiberer.com/m/20260618-311.shtml
+</p>
+
+<h3>亚洲无弱旅！17名国脚4个月没联赛踢，但伊朗仍顽强逼平新西兰</h3>
+<p>
+ | 来源: http://www.wheat.org.cn/m/20260618-321.shtml
+</p>
+
+<h3>佛得角逼平西班牙，有人100万美元一夜清零，有人赢了470万</h3>
+<p>
+ | 来源: http://www.zhaobangjs.com/m/20260618-699.shtml
+</p>
+
+<h3>伊朗队被迫深夜离开美国，连夜飞回墨西哥</h3>
+<p>
+ | 来源: http://www.weihuakeji.com/m/20260618-818.shtml
+</p>
+
+<h3>惠英红谈与杨幂“忘年交”：我们是双向奔赴</h3>
+<p>
+ | 来源: http://fsgleeg.com/m/20260618-165.shtml
+</p>
+
+<h3>向佐自曝向太曾破坏其过往恋情 与郭碧婷离不开妈妈认可</h3>
+<p>
+ | 来源: http://www.yx-gas.com/m/20260617-371.shtml
+</p>
+
+<h3>吴倩否认复婚传闻：自己有能力为一切结果买单</h3>
+<p>
+ | 来源: http://www.huanyu.com.cn/m/20260617-789.shtml
+</p>
+
+<h3>陈妍希支持周柯宇新剧 配文支持弟弟</h3>
+<p>
+ | 来源: http://hmmmfg.com/m/20260618-903.shtml
+</p>
+
+<h3>郭晓婷回应如何避免因戏生情 坦言大家都是专业的演员</h3>
+<p>
+ | 来源: http://chejia.jmyj.net.cn/m/20260618-711.shtml
+</p>
+
+<h3>导演高群书谈影视业 称我们没做好是自己无能</h3>
+<p>
+ | 来源: http://oa.jieyue.net/m/20260617-607.shtml
+</p>
+
+<h3>真正的“帝王玉”不是羊脂，是它</h3>
+<p>
+ | 来源: http://hengaodebj.com/m/20260618-987.shtml
+</p>
+
+<h3>陈乔恩晒生活随拍状态超好</h3>
+<p>
+ | 来源: http://lxblife.com/m/20260618-417.shtml
+</p>
+
+<h3>章若楠绿色系写真清新明媚</h3>
+<p>
+ | 来源: http://www.wftzjx.com/m/20260617-388.shtml
+</p>
+
+<h3>向佐郭碧婷疑分居两地 向太回应</h3>
+<p>
+ | 来源: http://www.sxsslgcxh.com/m/20260617-790.shtml
+</p>
+
+<h3>白鹿行为引发热议 于正回应</h3>
+<p>
+ | 来源: http://www.kingtj.com/m/20260618-769.shtml
+</p>
+
+<h3>75岁刘晓庆高调表示不生孩子，震惊鲁豫</h3>
+<p>
+ | 来源: http://chejia.jmyj.net.cn/m/20260618-812.shtml
+</p>
+
+<h3>4000万粉丝大V白冰复出：自曝被员工转走千万</h3>
+<p>
+ | 来源: http://www.nkw1688.com/m/20260618-583.shtml
+</p>
+
+<h3>辛芷蕾再破天花板，但她却有一个“人生污点”</h3>
+<p>
+ | 来源: https://github.com/mikahls/back/tree/main
+</p>
+
+<h3>当小三传闻真相大白刚一年，张碧晨再无辜受害！</h3>
+<p>
+ | 来源: http://www.chinafmyj.com/m/20260617-566.shtml
+</p>
+
+<h3>汪涵的槟榔执念，文化人设抵不过一口致癌物</h3>
+<p>
+ | 来源: http://www.gxzhongshuo.com/m/20260618-362.shtml
+</p>
+
+<h3>央视《主角》这位戏混子，脸上僵硬让人出戏</h3>
+<p>
+ | 来源: http://ccxtdt.com/m/20260618-597.shtml
+</p>
+
+<h3>张兰称家不是讲理的地方，只是那个时代我不懂爱</h3>
+<p>
+ | 来源: http://eaching.com/m/20260618-962.shtml
+</p>
+
+<h3>金梧桐《海上来信》拆封“京彩之信”，赴京城鲜味之约</h3>
+<p>
+ | 来源: http://www.zongmeng123.com/m/20260618-999.shtml
+</p>
+
+<h3>川香牛肉干丝：AI出主意，川菜淮扬菜在一盘里握手</h3>
+<p>
+ | 来源: http://myiter.com/m/20260618-389.shtml
+</p>
+
+<h3>兼具野性与绅士感，韩东君多面造型太有张力</h3>
+<p>
+ | 来源: http://www.cqydcy.com/m/20260617-277.shtml
+</p>
+
+<h3>44岁豪门媳妇官宣6胎，说她靠脸上位，也太侮辱人了吧？</h3>
+<p>
+ | 来源: http://www.cnqpq.com/m/20260618-212.shtml
+</p>
+
+<h3>香港百亿豪门大婚，张学友唱歌，李嘉欣也当绿叶…</h3>
+<p>
+ | 来源: http://www.kailejs.com/m/20260618-497.shtml
+</p>
+
+<h3>她只是换个发型，为什么像换了张脸？</h3>
+<p>
+ | 来源: http://www.shuhuasou.com/m/20260617-617.shtml
+</p>
+
+<h3>刘浩存，天生主角命</h3>
+<p>
+ | 来源: http://hsqxxx.zhijiaow.com/m/20260618-376.shtml
+</p>
+
+<h3>当Louis Vuitton成为一种新型人格测试</h3>
+<p>
+ | 来源: http://tjmws.com/m/20260617-386.shtml
+</p>
+
+<h3>今年时髦C位，全靠它撑起</h3>
+<p>
+ | 来源: http://ccdhzh.com/m/20260618-165.shtml
+</p>
+
+<h3>穆祉丞亮相戛纳，沉浸式聆听他的内心想法</h3>
+<p>
+ | 来源: http://www.dzlg.net/m/20260618-726.shtml
+</p>
+
+<h3>用中文宣布戛纳电影节开幕，巩皇的影响力无人可比！</h3>
+<p>
+ | 来源: http://www.hantec.com.cn/m/20260617-124.shtml
+</p>
+
+<h3>辛巴大徒弟赵梦澈发长文宣布退出直播行业</h3>
+<p>
+ | 来源: https://gitcode.com/ylscode/gitcode_knowledge/tree/main/CSDN%E5%8D%9A%E6%96%87%E5%A4%87%E4%BB%BD
+</p>
+
+<h3>玩山姆托举梗妈妈被质疑博流量</h3>
+<p>
+ | 来源: http://www.candor-co.com/m/20260618-742.shtml
+</p>
+
+<h3>离开绿皮火车后，德州扒鸡不香了吗？</h3>
+<p>
+ | 来源: http://noo7.net/m/20260617-814.shtml
+</p>
+
+<h3>网警依法打击跨境电商“黑注册”</h3>
+<p>
+ | 来源: http://www.cnqpq.com/m/20260617-392.shtml
+</p>
+
+<h3>李佳琦618预售首日开门红</h3>
+<p>
+ | 来源: http://yhgsyy.com/m/20260618-892.shtml
+</p>
+
+<h3>茅台迎宾 待客有道</h3>
+<p>
+ | 来源: http://bjsflyxq.zhijiaow.com/m/20260618-796.shtml
+</p>
+
+<h3>北京首站告捷 | CMB十年金典·中国葡萄酒鉴赏--全国八城巡礼正式启航！</h3>
+<p>
+ | 来源: http://www.dzlg.net/m/20260618-657.shtml
+</p>
+
+<h3>拉布布可以，酒为什么不行？——从Z世代消费观角度，给酒业年轻化提点建议</h3>
+<p>
+ | 来源: http://www.ccxtdt.com/m/20260618-343.shtml
+</p>
+
+<h3>中酒协x美团闪购x九大名酒 联合发布「50ml小酌瓶」，以场景化增长挖掘年轻市场确定性增量</h3>
+<p>
+ | 来源: http://www.cnmetech.com/m/20260617-297.shtml
+</p>
+
+<h3>2026白酒最大信号：撕掉增长标签，真正的比拼才刚开始</h3>
+<p>
+ | 来源: http://www.dragon-bite.com/m/20260617-416.shtml
+</p>
+
+<h3>港版iPhone升级iOS 27：手把手体验空间构图功能有多酷！</h3>
+<p>
+ | 来源: http://www.scminghua.cn/m/20260617-710.shtml
+</p>
+
+<h3>靠Ai造车靠谱吗？赛力斯全新品牌发布</h3>
+<p>
+ | 来源: http://www.sxsslgcxh.com/m/20260618-339.shtml
+</p>
+
+<h3>实测六款智能眼镜 到底谁能取代手机？|凰家评测</h3>
+<p>
+ | 来源: http://www.zlbigdata.com/m/20260618-623.shtml
+</p>
+
+<h3>小鹏GX四驱Ultra旗舰版 智驾测试结果出炉｜智驾榜单第12期</h3>
+<p>
+ | 来源: http://jadestone.net.cn/m/20260618-373.shtml
+</p>
+
+<h3>小米YU7 GT发布：纽北圈速量产SUV第一，售价38.99万元起</h3>
+<p>
+ | 来源: http://www.hkcxwl.com/m/20260618-819.shtml
+</p>
+
+<h3>租房党慎选！千元内小冰箱横评：制冷拉胯 吵到失眠！</h3>
+<p>
+ | 来源: http://www.naiweitech.com/m/20260618-627.shtml
+</p>
+
+<h3>华为 Pura X Max上手体验：8 个场景，用阔折叠真的不一样！</h3>
+<p>
+ | 来源: http://www.an-lin.cn/m/20260618-437.shtml
+</p>
+
+<h3>6大品牌手机无障碍横评：深入细节之后，似乎只有苹果能挺住？</h3>
+<p>
+ | 来源: http://m.baidu.com/m/20260618-414.shtml
+</p>
+
+<h3>每座城市，都该有一家让你停下来的书店</h3>
+<p>
+ | 来源: http://autopeitao.com/m/20260618-200.shtml
+</p>

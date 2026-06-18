@@ -1,0 +1,502 @@
+<h1> AI Builders Digest 今日热点快报</h1>
+<p><strong>2026年06月18日 05时17分09秒(UTC+8)</strong></p>
+<hr>
+<h3>中国5月RatingDog服务业PMI54.4，前值52.6</h3>
+<p>
+ | 来源: http://www.shanghaiott.com/m/20260617-752.shtml
+</p>
+
+<h3>培育钻石板块冲高，楚江新材涨停</h3>
+<p>
+ | 来源: http://yx-gas.com/m/20260618-870.shtml
+</p>
+
+<h3>极佳视界与隆盛科技旗下隆盛唯睿达成深度战略合作</h3>
+<p>
+ | 来源: http://www.xl-2.com/m/20260618-928.shtml
+</p>
+
+<h3>沪深京三市成交额超5000亿元，较上日此时放量442亿元</h3>
+<p>
+ | 来源: http://hongyi.jieyue.net/m/20260618-118.shtml
+</p>
+
+<h3>元件板块短线拉升</h3>
+<p>
+ | 来源: http://www.jnjsjl.com/m/20260618-239.shtml
+</p>
+
+<h3>智元开源AGIBOT WORLD 2026主题二，专属于世界模型的数据集</h3>
+<p>
+ | 来源: http://hkxin.xiaogbui.com/m/20260617-713.shtml
+</p>
+
+<h3>美称击落伊朗袭科威特美军无人机</h3>
+<p>
+ | 来源: http://www.xinghualou.net.cn/m/20260617-902.shtml
+</p>
+
+<h3>创业板指涨1%，铜缆高速连接、光纤概念、CPO板块领涨</h3>
+<p>
+ | 来源: http://crft.qiyitech.cn/m/20260618-800.shtml
+</p>
+
+<h3>影视院线板块下挫，北京文化跌停</h3>
+<p>
+ | 来源: http://www.weihuakeji.com/m/20260617-317.shtml
+</p>
+
+<h3>泽连斯基：俄袭击造成乌克兰22人死亡</h3>
+<p>
+ | 来源: http://www.bainaep.net/m/20260618-367.shtml
+</p>
+
+<h3>深圳国资基金九成投向“20+8”产业</h3>
+<p>
+ | 来源: http://pdzjzx.zhijiaow.com/m/20260617-491.shtml
+</p>
+
+<h3>光学光电子板块短线冲高，实益达涨停</h3>
+<p>
+ | 来源: http://www.gxzhongshuo.com/m/20260618-362.shtml
+</p>
+
+<h3>航运巨头马士基：中东冲突给企业运营带来巨大经济压力</h3>
+<p>
+ | 来源: http://pdzjzx.zhijiaow.com/m/20260618-635.shtml
+</p>
+
+<h3>光纤概念板块高开，天孚通信高开超9%</h3>
+<p>
+ | 来源: http://www.ccxtdt.com/m/20260618-806.shtml
+</p>
+
+<h3>铜缆高速连接板块高开，鑫科材料2连板</h3>
+<p>
+ | 来源: http://www.fastchina.net/m/20260618-741.shtml
+</p>
+
+<h3>ETF开盘：深100ETF领涨7.85%，标普生物科技ETF领跌3.76%</h3>
+<p>
+ | 来源: http://www.yx-gas.com/m/20260618-526.shtml
+</p>
+
+<h3>第十六届松山湖中国IC创新高峰论坛召开 已推介量产芯片119款</h3>
+<p>
+ | 来源: https://github.com/mikahls/back/tree/main
+</p>
+
+<h3>A股开盘：三大指数涨跌不一</h3>
+<p>
+ | 来源: http://hkxin.xiaogbui.com/m/20260618-459.shtml
+</p>
+
+<h3>央行：6月3日7天期逆回购操作量为零</h3>
+<p>
+ | 来源: http://www.thuni-h.com/m/20260618-205.shtml
+</p>
+
+<h3>港股开盘：恒生指数低开0.33%，恒生科技指数低开0.7%</h3>
+<p>
+ | 来源: http://www.skygp.com/m/20260618-652.shtml
+</p>
+
+<h3>机构：ChatGPT全球每月活跃用户突破10亿</h3>
+<p>
+ | 来源: http://thuni-h.com/m/20260618-147.shtml
+</p>
+
+<h3>印度欲再采购114架法国“阵风”战机</h3>
+<p>
+ | 来源: http://wh.kkpark.cc/m/20260618-897.shtml
+</p>
+
+<h3>人民币兑美元中间价报6.8184，较上日调高3点</h3>
+<p>
+ | 来源: http://www.zkam.com/m/20260618-161.shtml
+</p>
+
+<h3>东南亚多国担忧今夏旅游旺季“难旺”</h3>
+<p>
+ | 来源: http://petrol-coke.com/m/20260618-134.shtml
+</p>
+
+<h3>上期所欧线集运主力合约跌超4%</h3>
+<p>
+ | 来源: http://jzhbl.com/m/20260618-598.shtml
+</p>
+
+<h3>中金财富期货：当前美伊冲突仍难有结果，黄金被动跟随原油波动</h3>
+<p>
+ | 来源: http://www.yf-syc.com/m/20260618-311.shtml
+</p>
+
+<h3>5月份中国物流业景气指数为50.3% 重回扩张区间</h3>
+<p>
+ | 来源: http://www.19986.net/m/20260618-601.shtml
+</p>
+
+<h3>6月2日501股获融资买入超亿元 中际旭创获买入56.72亿元居首</h3>
+<p>
+ | 来源: http://yx-gas.com/m/20260618-501.shtml
+</p>
+
+<h3>富时中国A50指数期货盘初跌0.14%</h3>
+<p>
+ | 来源: http://www.nkw1688.com/m/20260618-827.shtml
+</p>
+
+<h3>期市早盘开盘，国内期货主力合约多数上涨，欧线集运跌超2%</h3>
+<p>
+ | 来源: http://www.qiyitech.cn/m/20260618-488.shtml
+</p>
+
+<h3>阿里副总裁张凯夫离职创业</h3>
+<p>
+ | 来源: http://m.baidu.com/m/20260617-918.shtml
+</p>
+
+<h3>郑栅洁主任主持召开国有企业座谈会 围绕深化国资国企改革及推动国有企业更好服务国家重大战略听取意见建议</h3>
+<p>
+ | 来源: http://www.jingtouwang.com.cn/m/20260618-465.shtml
+</p>
+
+<h3>泰国司法部长：前总理他信将被特赦</h3>
+<p>
+ | 来源: http://www.candor-co.com/m/20260617-715.shtml
+</p>
+
+<h3>两市融资余额较上日增加13.38亿元</h3>
+<p>
+ | 来源: http://jadestone.net.cn/m/20260617-365.shtml
+</p>
+
+<h3>日经225指数涨超2%</h3>
+<p>
+ | 来源: http://eaching.com/m/20260617-915.shtml
+</p>
+
+<h3>天风证券：煤化工盈利或进入上行周期</h3>
+<p>
+ | 来源: http://www.zhijiaow.com/m/20260617-483.shtml
+</p>
+
+<h3>匈牙利总理：准备好与泽连斯基会谈</h3>
+<p>
+ | 来源: http://oa.jieyue.net/m/20260617-607.shtml
+</p>
+
+<h3>联发科：下一代芯片独家采用英特尔EMIB-T封装 预计2027年Q4量产</h3>
+<p>
+ | 来源: http://haojida.com/m/20260618-880.shtml
+</p>
+
+<h3>泰和新材：芳纶主要在光缆成缆过程中使用，在光纤中不多</h3>
+<p>
+ | 来源: http://thuni-h.com/m/20260618-446.shtml
+</p>
+
+<h3>全球最大的白银ETF iShares Silver Trust持仓量较前日减少44.53吨</h3>
+<p>
+ | 来源: http://hkxin.xiaogbui.com/m/20260618-297.shtml
+</p>
+
+<h3>消息人士称SpaceX计划在公开募股中设定每股135美元的定价目标</h3>
+<p>
+ | 来源: http://www.kailejs.com/m/20260618-497.shtml
+</p>
+
+<h3>特朗普否认美伊对话已暂停数日</h3>
+<p>
+ | 来源: http://hongyi.jieyue.net/m/20260617-163.shtml
+</p>
+
+<h3>美军证实先空袭后拦截，否认第五舰队总部遇袭</h3>
+<p>
+ | 来源: http://www.dragon-bite.com/m/20260618-845.shtml
+</p>
+
+<h3>布伦特原油站上97美元/桶</h3>
+<p>
+ | 来源: http://www.jsxdaf.com/m/20260617-511.shtml
+</p>
+
+<h3>铠侠涨超5%</h3>
+<p>
+ | 来源: http://www.shanghaiott.com/m/20260618-820.shtml
+</p>
+
+<h3>期货早报：美军袭击伊朗油轮！科威特全国拉响防空警报，油价开盘拉升</h3>
+<p>
+ | 来源: http://eaching.com/m/20260618-962.shtml
+</p>
+
+<h3>日经225指数日内涨幅达1.00%</h3>
+<p>
+ | 来源: http://jsxxwy.com/m/20260618-942.shtml
+</p>
+
+<h3>打击跨境电商“黑注册” 3人非法倒卖公民资料被刑拘</h3>
+<p>
+ | 来源: http://www.cnmetech.com/m/20260617-297.shtml
+</p>
+
+<h3>日经225指数开盘涨0.83%</h3>
+<p>
+ | 来源: http://www.jsxdaf.com/m/20260618-145.shtml
+</p>
+
+<h3>伊朗革命卫队：为回应美军袭击，已打击美以船只及美军基地</h3>
+<p>
+ | 来源: http://www.bainaep.net/m/20260618-857.shtml
+</p>
+
+<h3>美伊再次互袭</h3>
+<p>
+ | 来源: http://www.skygp.com/m/20260618-449.shtml
+</p>
+
+<h3>Silvio Napoli已出任Lucid首席执行官</h3>
+<p>
+ | 来源: http://www.kailejs.com/m/20260618-326.shtml
+</p>
+
+<h3>伊朗称袭击美军第五舰队</h3>
+<p>
+ | 来源: http://www.zhaobangjs.com/m/20260618-699.shtml
+</p>
+
+<h3>巴林、阿联酋、科威特机场运营因空袭暂停</h3>
+<p>
+ | 来源: http://sz.sawenow.com/m/20260618-666.shtml
+</p>
+
+<h3>美铜伦铜差值走阔 铜价短中期或仍具备上行动能</h3>
+<p>
+ | 来源: http://www.zongmeng123.com/m/20260618-999.shtml
+</p>
+
+<h3>“险资系”私募基金投资动向曝光 坚守“红利+成长”哑铃型策略</h3>
+<p>
+ | 来源: http://ccdhzh.com/m/20260617-787.shtml
+</p>
+
+<h3>供给偏紧 AI需求托底 锡价中长期上行可期</h3>
+<p>
+ | 来源: http://eaching.com/m/20260618-301.shtml
+</p>
+
+<h3>现货黄金失守4470美元/盎司</h3>
+<p>
+ | 来源: http://www.szhbjt.com/m/20260618-681.shtml
+</p>
+
+<h3>现货黄金失守4480美元/盎司</h3>
+<p>
+ | 来源: http://www.churchart.cn/m/20260618-352.shtml
+</p>
+
+<h3>科威特称拦截来袭导弹 伊朗格什姆岛传爆炸声</h3>
+<p>
+ | 来源: http://www.carinway.com/m/20260618-891.shtml
+</p>
+
+<h3>纽约期金失守4510美元/盎司</h3>
+<p>
+ | 来源: http://hongyi.jieyue.net/m/20260618-721.shtml
+</p>
+
+<h3>联合国专家谴责美国对古巴革命领袖的指控</h3>
+<p>
+ | 来源: http://www.dlsccs.com/m/20260617-426.shtml
+</p>
+
+<h3>日媒：中国国债吸引力凸显</h3>
+<p>
+ | 来源: http://www.lottiesilicone.com/m/20260618-464.shtml
+</p>
+
+<h3>柬埔寨宣布启动强制调解程序，以解决与泰国重叠海洋权益主张</h3>
+<p>
+ | 来源: http://www.dfkbedu.com/m/20260618-771.shtml
+</p>
+
+<h3>今年前五月我国新开国际航空货运航线80条</h3>
+<p>
+ | 来源: http://pr.suerda.com/m/20260618-592.shtml
+</p>
+
+<h3>美国国务卿鲁比奥：以色列拟控加沙七成区域 不符美方立场</h3>
+<p>
+ | 来源: http://yx-gas.com/m/20260618-779.shtml
+</p>
+
+<h3>外资公募再增资，中国资产性价比吸引全球资金</h3>
+<p>
+ | 来源: http://www.cm5g.com/m/20260618-167.shtml
+</p>
+
+<h3>SpaceX计划最快周三确定IPO条款</h3>
+<p>
+ | 来源: http://lxblife.com/m/20260618-951.shtml
+</p>
+
+<h3>上证报评论：莫让票据冲量稀释信贷成色</h3>
+<p>
+ | 来源: http://pr.suerda.com/m/20260618-276.shtml
+</p>
+
+<h3>联合国：刚果（金）东部暴力升级阻碍埃博拉疫情防控工作</h3>
+<p>
+ | 来源: http://autopeitao.com/m/20260618-424.shtml
+</p>
+
+<h3>港股回购热度升温，机构建议关注结构性机会</h3>
+<p>
+ | 来源: http://petrol-coke.com/m/20260618-384.shtml
+</p>
+
+<h3>光通信产业链领涨 A股结构性行情延续</h3>
+<p>
+ | 来源: http://www.huaiheedu.com/m/20260618-450.shtml
+</p>
+
+<h3>“含科量”悄然抬升 消费主题基金审美坐标位移</h3>
+<p>
+ | 来源: http://www.zhaobangjs.com/m/20260618-992.shtml
+</p>
+
+<h3>美军在波斯湾袭击一艘油轮</h3>
+<p>
+ | 来源: http://www.yx-gas.com/m/20260618-848.shtml
+</p>
+
+<h3>平陆运河今天将实现全线通水</h3>
+<p>
+ | 来源: http://www.hkcxwl.com/m/20260618-762.shtml
+</p>
+
+<h3>美债收益率涨跌不一，30年期美债收益率跌1.21个基点</h3>
+<p>
+ | 来源: http://www.jxzhijia.cn/m/20260618-862.shtml
+</p>
+
+<h3>伊朗南部格什姆岛传出爆炸声</h3>
+<p>
+ | 来源: http://www.saner.cn/m/20260618-258.shtml
+</p>
+
+<h3>迈威尔科技股价盘后涨幅扩大，一度达9.4%</h3>
+<p>
+ | 来源: http://lxblife.com/m/20260618-417.shtml
+</p>
+
+<h3>受台风“蔷薇”影响，日本和歌山县发布最高等级5级警戒</h3>
+<p>
+ | 来源: http://www.lottiesilicone.com/m/20260617-399.shtml
+</p>
+
+<h3>富时中国A50指数期货夜盘收跌0.15%，报15912点</h3>
+<p>
+ | 来源: http://www.cnqpq.com/m/20260618-977.shtml
+</p>
+
+<h3>匈牙利总理称不会向乌克兰供武</h3>
+<p>
+ | 来源: http://www.autopeitao.com/m/20260617-508.shtml
+</p>
+
+<h3>网络安全公司NetSkope美股盘后涨3.8%</h3>
+<p>
+ | 来源: http://ccxtdt.com/m/20260618-521.shtml
+</p>
+
+<h3>美军称袭击一艘伊朗相关油轮 使其失去航行能力</h3>
+<p>
+ | 来源: http://www.abcd6.net/m/20260618-297.shtml
+</p>
+
+<h3>韩国第九届地方选举正式投票开始</h3>
+<p>
+ | 来源: http://www.jingtouwang.com.cn/m/20260618-792.shtml
+</p>
+
+<h3>录音显示美军袭击一艘伊朗相关油轮</h3>
+<p>
+ | 来源: https://gitcode.com/ylscode/gitcode_knowledge/tree/main/CSDN%E5%8D%9A%E6%96%87%E5%A4%87%E4%BB%BD
+</p>
+
+<h3>美国至5月29日当周API原油库存 -675.7万桶，预期-360.5万桶</h3>
+<p>
+ | 来源: http://fsgleeg.com/m/20260617-346.shtml
+</p>
+
+<h3>游戏驿站美股盘后大涨 12%</h3>
+<p>
+ | 来源: http://sz.sawenow.com/m/20260618-266.shtml
+</p>
+
+<h3>游戏驿站一季度净销售8.353亿美元，同比增长14%</h3>
+<p>
+ | 来源: http://www.zhijiandaxi.com/m/20260618-505.shtml
+</p>
+
+<h3>加纳两车相撞造成至少15人死亡25人重伤</h3>
+<p>
+ | 来源: http://www.xl-2.com/m/20260617-412.shtml
+</p>
+
+<h3>三大股指小幅收涨 标普首次突破7600点</h3>
+<p>
+ | 来源: http://www.cqydcy.com/m/20260617-277.shtml
+</p>
+
+<h3>国际油价2日上涨</h3>
+<p>
+ | 来源: http://tjmws.com/m/20260617-386.shtml
+</p>
+
+<h3>纳斯达克中国金龙指数收涨1.87%</h3>
+<p>
+ | 来源: http://yhgsyy.com/m/20260618-666.shtml
+</p>
+
+<h3>无锡上线“词元超市” 企业用AI更简单、更省钱</h3>
+<p>
+ | 来源: http://myiter.com/m/20260617-766.shtml
+</p>
+
+<h3>丹麦新政府：坚守格陵兰岛主权</h3>
+<p>
+ | 来源: http://www.bainaep.net/m/20260617-692.shtml
+</p>
+
+<h3>美元指数2日上涨</h3>
+<p>
+ | 来源: http://www.hzzhiyue.com/m/20260617-126.shtml
+</p>
+
+<h3>比特币跌破67000美元，日内跌6.22%</h3>
+<p>
+ | 来源: http://www.naiweitech.com/m/20260618-707.shtml
+</p>
+
+<h3>美国制裁伊朗加密货币交易平台及相关人员</h3>
+<p>
+ | 来源: http://www.thuni-h.com/m/20260618-469.shtml
+</p>
+
+<h3>微软推出首个AI推理模型Mai-Thinking-1</h3>
+<p>
+ | 来源: http://bjsflyxq.zhijiaow.com/m/20260618-796.shtml
+</p>
+
+<h3>英伟达与微软达成合作：推出统一技术栈 用于部署Agentic AI</h3>
+<p>
+ | 来源: http://www.dfkbedu.com/m/20260617-599.shtml
+</p>
+
+<h3>黎巴嫩真主党不接受与以色列“部分停火”</h3>
+<p>
+ | 来源: http://360pack.com/m/20260618-141.shtml
+</p>
