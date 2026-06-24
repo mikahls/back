@@ -1,0 +1,502 @@
+<h1> AI Builders Digest 今日热点快报</h1>
+<p><strong>2026年06月24日 21时08分47秒(UTC+8)</strong></p>
+<hr>
+<h3>去年以来北京警方破获涉医保基金类案件70多起</h3>
+<p>
+ | 来源: http://jsxxwy.com/blog/20260624-524.shtml
+</p>
+
+<h3>4月房企债券融资规模同比增长近3成</h3>
+<p>
+ | 来源: http://www.hengaodebj.com/blog/20260624-792.shtml
+</p>
+
+<h3>国务院国资委举办中央企业工业母机领域人才特训班</h3>
+<p>
+ | 来源: http://www.baren.hk/blog/20260624-864.shtml
+</p>
+
+<h3>MSCI新兴市场股票指数创历史新高</h3>
+<p>
+ | 来源: http://www.sxsslgcxh.com/blog/20260624-986.shtml
+</p>
+
+<h3>人形机器人板块震荡下挫，奕帆传动、上纬新材跌超10%</h3>
+<p>
+ | 来源: http://www.jesdy.com/blog/20260624-778.shtml
+</p>
+
+<h3>乌外长呼吁阻止俄方继续袭击基辅</h3>
+<p>
+ | 来源: http://hongyi.jieyue.net/blog/20260624-810.shtml
+</p>
+
+<h3>司法部武增：今年将制定全国统一大市场建设条例，加快推进人工智能健康发展综合性立法</h3>
+<p>
+ | 来源: http://noo7.net/blog/20260624-167.shtml
+</p>
+
+<h3>墨西哥逮捕大毒枭古斯曼侄子</h3>
+<p>
+ | 来源: http://www.migun.net.cn/blog/20260624-622.shtml
+</p>
+
+<h3>华虹公司股价盘中创历史新高</h3>
+<p>
+ | 来源: http://sz.sawenow.com/blog/20260624-507.shtml
+</p>
+
+<h3>蚂蚁国际在拉美开通全球电子钱包跨境支付服务</h3>
+<p>
+ | 来源: http://www.trbz.net/blog/20260624-824.shtml
+</p>
+
+<h3>最高法：完善AI生成等方面裁判规则</h3>
+<p>
+ | 来源: http://www.sigehui.com/blog/20260624-962.shtml
+</p>
+
+<h3>国台办：所谓美台“对等协议” 是民进党当局的卖台契约</h3>
+<p>
+ | 来源: http://www.txegt.com.cn/blog/20260624-333.shtml
+</p>
+
+<h3>沪深京三市成交额超1.5万亿元，较上日此时缩量998亿元</h3>
+<p>
+ | 来源: http://hongyi.jieyue.net/blog/20260624-765.shtml
+</p>
+
+<h3>最高法：尽快制定涉内幕交易、操纵市场的民事赔偿司法解释，保障资本市场稳健运行</h3>
+<p>
+ | 来源: http://www.txegt.com.cn/blog/20260624-665.shtml
+</p>
+
+<h3>最高检：全面加强对立案、侦查、审判、执行等活动的法律监督</h3>
+<p>
+ | 来源: http://www.ncqt.cn/blog/20260624-144.shtml
+</p>
+
+<h3>奇富科技：累计注册用户数达2.98亿，同比增长11%</h3>
+<p>
+ | 来源: http://xycyzl.com/blog/20260624-450.shtml
+</p>
+
+<h3>三星正计划在越南建设一座投资15亿美元的存储芯片测试工厂</h3>
+<p>
+ | 来源: http://www.huanyu.com.cn/blog/20260624-241.shtml
+</p>
+
+<h3>三星电子劳资协议通过 罢工风险暂时解除</h3>
+<p>
+ | 来源: http://nhjco.cn/blog/20260624-682.shtml
+</p>
+
+<h3>创业板指盘中点数超越沪指</h3>
+<p>
+ | 来源: http://www.dragon-bite.com/blog/20260624-725.shtml
+</p>
+
+<h3>将制定金融法、医疗保障法等 2026年度立法工作计划发布</h3>
+<p>
+ | 来源: http://www.trbz.net/blog/20260624-856.shtml
+</p>
+
+<h3>字节跳动本月向Seed员工开放“豆包股”认购？知情人士：没有“认购”一说 可选择年终奖以豆包股形式发放</h3>
+<p>
+ | 来源: http://www.jsxdaf.com/blog/20260624-191.shtml
+</p>
+
+<h3>贵金属板块持续下挫，四川黄金跌超6%</h3>
+<p>
+ | 来源: http://glmckj.cn/blog/20260624-189.shtml
+</p>
+
+<h3>五部门开展2026年“百场万企”大中小企业融通对接活动</h3>
+<p>
+ | 来源: http://lxblife.com/blog/20260624-291.shtml
+</p>
+
+<h3>胜宏科技股价创历史新高</h3>
+<p>
+ | 来源: http://justop.vip/blog/20260624-299.shtml
+</p>
+
+<h3>电力板块震荡走高，韶能股份盘中触及涨停</h3>
+<p>
+ | 来源: http://www.zkam.com/blog/20260624-896.shtml
+</p>
+
+<h3>逆变器板块持续走高，正泰电源涨停</h3>
+<p>
+ | 来源: http://www.analytech.cn/blog/20260624-757.shtml
+</p>
+
+<h3>输变电设备板块短线拉升</h3>
+<p>
+ | 来源: http://lxblife.com/blog/20260624-169.shtml
+</p>
+
+<h3>声网母公司2026年一季度实现净利润111万美元</h3>
+<p>
+ | 来源: http://www.bothcapital.com/blog/20260624-911.shtml
+</p>
+
+<h3>沪深京三市成交额超1万亿元，较上日此时缩量1020亿元</h3>
+<p>
+ | 来源: http://www.baolongplastic.com/blog/20260624-427.shtml
+</p>
+
+<h3>上海科创集团、复旦科创领投 新智具身获近亿元天使轮融资</h3>
+<p>
+ | 来源: http://www.bainaep.net/blog/20260624-781.shtml
+</p>
+
+<h3>伊朗议长访问卡塔尔寻求解冻海外资金</h3>
+<p>
+ | 来源: http://www.jesdy.com/blog/20260624-188.shtml
+</p>
+
+<h3>影视院线板块持续拉升，百纳千成20cm涨停</h3>
+<p>
+ | 来源: http://chaohealloy.com/blog/20260624-252.shtml
+</p>
+
+<h3>郑州“十五五”规划纲要：支持国家超算郑州中心优化升级超算系统</h3>
+<p>
+ | 来源: http://www.sarchee.com/blog/20260624-921.shtml
+</p>
+
+<h3>建滔集团向客户下发涨价通知：板料涨价10%，PP材料涨价20%</h3>
+<p>
+ | 来源: http://www.bjtcpip.com/blog/20260624-558.shtml
+</p>
+
+<h3>兆易创新成交额达100亿元</h3>
+<p>
+ | 来源: http://www.jsxdaf.com/blog/20260624-191.shtml
+</p>
+
+<h3>半导体板块短线拉升，华微电子涨停</h3>
+<p>
+ | 来源: http://yf-syc.com/blog/20260624-387.shtml
+</p>
+
+<h3>短剧游戏板块短线拉升</h3>
+<p>
+ | 来源: http://hdhc.com.cn/blog/20260624-497.shtml
+</p>
+
+<h3>郑州“十五五”规划纲要：发展石墨烯、第三代半导体材料等 打造具有全国竞争力的未来材料产业高地</h3>
+<p>
+ | 来源: http://www.bothcapital.com/blog/20260624-608.shtml
+</p>
+
+<h3>港股大模型概念股拉升，MINIMAX-W涨超8%</h3>
+<p>
+ | 来源: http://www.qiangyang.com.cn/blog/20260624-664.shtml
+</p>
+
+<h3>中金黄金等在和田成立矿产开发新公司</h3>
+<p>
+ | 来源: http://www.huanyu.com.cn/blog/20260624-679.shtml
+</p>
+
+<h3>宁德时代A股港股均涨超6%</h3>
+<p>
+ | 来源: http://www.yf-syc.com/blog/20260624-611.shtml
+</p>
+
+<h3>冠中生态与四川省生态发展集团达成战略合作意向</h3>
+<p>
+ | 来源: http://jshc.net/blog/20260624-976.shtml
+</p>
+
+<h3>沪深京三市成交额超5000亿元，较上日此时缩量287亿元</h3>
+<p>
+ | 来源: http://www.bjtcpip.com/blog/20260624-667.shtml
+</p>
+
+<h3>培育钻石板块盘初下挫，恒林股份、博云新材触及跌停</h3>
+<p>
+ | 来源: http://www.hantec.com.cn/blog/20260624-564.shtml
+</p>
+
+<h3>天孚通信股价创历史新高</h3>
+<p>
+ | 来源: http://www.jnjsjl.com/blog/20260624-242.shtml
+</p>
+
+<h3>全球最大的白银ETF iShares Silver Trust持仓量较前日减少36.59吨</h3>
+<p>
+ | 来源: http://jsxxwy.com/blog/20260624-123.shtml
+</p>
+
+<h3>A股三大指数集体翻红，创业板指创历史新高</h3>
+<p>
+ | 来源: http://yzugb.yuyangsoft.com/blog/20260624-809.shtml
+</p>
+
+<h3>创业板指涨1%，创下历史新高</h3>
+<p>
+ | 来源: http://www.dgyibiao.com/blog/20260624-797.shtml
+</p>
+
+<h3>2026年1—4月份全国规模以上工业企业利润增长18.2%</h3>
+<p>
+ | 来源: http://www.ruinengkeji.com/blog/20260624-277.shtml
+</p>
+
+<h3>ETF开盘：深证100ETF领涨9.10%，机器人ETF领跌2.04%</h3>
+<p>
+ | 来源: http://www.cnqpq.com/blog/20260624-906.shtml
+</p>
+
+<h3>新股N长进高开超1100%</h3>
+<p>
+ | 来源: http://oa.jieyue.net/blog/20260624-660.shtml
+</p>
+
+<h3>三星电子工会表示其成员已批准薪资协议，73.7%的投票支持薪资协议</h3>
+<p>
+ | 来源: http://www.bainaep.net/blog/20260624-185.shtml
+</p>
+
+<h3>存储芯片板块高开，深科技涨停</h3>
+<p>
+ | 来源: http://www.xc-electric.cn/blog/20260624-662.shtml
+</p>
+
+<h3>央行：5月27日开展了1776亿元7天期逆回购操作</h3>
+<p>
+ | 来源: http://wheat.org.cn/blog/20260624-622.shtml
+</p>
+
+<h3>港股开盘：恒生指数高开0.04%，恒生科技指数高开0.66%</h3>
+<p>
+ | 来源: http://www.sf304.cc/blog/20260624-273.shtml
+</p>
+
+<h3>央行今天将在香港发行两期300亿元央票</h3>
+<p>
+ | 来源: http://www.cm5g.com/blog/20260624-874.shtml
+</p>
+
+<h3>上一交易日ETF两市融资融券余额1113.59亿元</h3>
+<p>
+ | 来源: http://oa.jieyue.net/blog/20260624-729.shtml
+</p>
+
+<h3>古巴外长与联合国秘书长举行会晤 谴责美国对古军事威胁</h3>
+<p>
+ | 来源: http://yhgsyy.com/blog/20260624-712.shtml
+</p>
+
+<h3>北部湾港集团与越南航海总公司交流座谈</h3>
+<p>
+ | 来源: http://www.trbz.net/blog/20260624-925.shtml
+</p>
+
+<h3>人民币兑美元中间价报6.8291，较上日调低3点</h3>
+<p>
+ | 来源: http://www.chinafmyj.com/blog/20260624-607.shtml
+</p>
+
+<h3>朝鲜进行导弹发射系统试验 金正恩称系军力升级信号</h3>
+<p>
+ | 来源: http://www.hnxiaoxin.com/blog/20260624-623.shtml
+</p>
+
+<h3>咪咕成2026美加墨世界杯持权转播商</h3>
+<p>
+ | 来源: http://www.cnc.js.cn/blog/20260624-375.shtml
+</p>
+
+<h3>5月26日641股获融资买入超亿元 兆易创新获买入56.49亿元居首</h3>
+<p>
+ | 来源: http://www.baren.hk/blog/20260624-941.shtml
+</p>
+
+<h3>富时中国A50指数期货盘初跌0.29%</h3>
+<p>
+ | 来源: http://nhjco.cn/blog/20260624-390.shtml
+</p>
+
+<h3>沃兰特航空完成近10亿元C+轮融资</h3>
+<p>
+ | 来源: http://www.sigehui.com/blog/20260624-652.shtml
+</p>
+
+<h3>隆基绿能成立源储未来新能源公司</h3>
+<p>
+ | 来源: http://www.zlbigdata.com/blog/20260624-927.shtml
+</p>
+
+<h3>中信期货：白银短线维持震荡，利率预期仍压制上涨趋势</h3>
+<p>
+ | 来源: http://www.thuni-h.com/blog/20260624-372.shtml
+</p>
+
+<h3>中金财富期货：目前阶段的黄金走势与流动性压力水平高度相关</h3>
+<p>
+ | 来源: http://www.baolongplastic.com/blog/20260624-585.shtml
+</p>
+
+<h3>日本国会通过法案设立“国家情报会议”</h3>
+<p>
+ | 来源: http://yhgsyy.com/blog/20260624-161.shtml
+</p>
+
+<h3>绿盟科技成立网络安全技术公司，含AI业务</h3>
+<p>
+ | 来源: http://www.poizoon.cn/blog/20260624-468.shtml
+</p>
+
+<h3>两市融资余额较上日增加73.41亿元</h3>
+<p>
+ | 来源: http://pathosans.spraychina.com.cn/blog/20260624-849.shtml
+</p>
+
+<h3>特朗普任命前司法部长邦迪加入白宫人工智能政策顾问委员会</h3>
+<p>
+ | 来源: http://www.an-lin.cn/blog/20260624-360.shtml
+</p>
+
+<h3>美联邦政府再度起诉加州大学</h3>
+<p>
+ | 来源: http://tjmws.com/blog/20260624-144.shtml
+</p>
+
+<h3>王毅谈中方对联合国秘书长选举的期待</h3>
+<p>
+ | 来源: http://www.huaiheedu.com/blog/20260624-736.shtml
+</p>
+
+<h3>美国华盛顿州一工厂化学储罐内爆，已致1死9失联</h3>
+<p>
+ | 来源: http://yzugb.yuyangsoft.com/blog/20260624-868.shtml
+</p>
+
+<h3>王予波与亚投行行长邹加怡举行工作会谈</h3>
+<p>
+ | 来源: http://www.bainaep.net/blog/20260624-729.shtml
+</p>
+
+<h3>“丝路光影”中国电影海外展映推介活动在南非约翰内斯堡启动</h3>
+<p>
+ | 来源: http://www.intransing.com/blog/20260624-802.shtml
+</p>
+
+<h3>中信证券：社服行业下半年推荐三条主线</h3>
+<p>
+ | 来源: http://an-lin.cn/blog/20260624-181.shtml
+</p>
+
+<h3>世界最大规模海上换流站今日启运</h3>
+<p>
+ | 来源: http://www.fiberw.com/blog/20260624-871.shtml
+</p>
+
+<h3>王毅会见巴林外交大臣扎耶尼</h3>
+<p>
+ | 来源: http://www.carinway.com/blog/20260624-874.shtml
+</p>
+
+<h3>王毅会见印尼外长苏吉约诺</h3>
+<p>
+ | 来源: http://oa.jieyue.net/blog/20260624-197.shtml
+</p>
+
+<h3>王毅谈当前伊朗局势僵局</h3>
+<p>
+ | 来源: http://www.kayin.com.cn/blog/20260624-381.shtml
+</p>
+
+<h3>华泰证券：券商板块经营已进入良性发展阶段 业绩增长具备可持续性</h3>
+<p>
+ | 来源: http://www.sf304.cc/blog/20260624-635.shtml
+</p>
+
+<h3>KOSPI 200期货上涨5%后，韩国交易所启动KOSPI熔断机制</h3>
+<p>
+ | 来源: http://yf-syc.com/blog/20260624-281.shtml
+</p>
+
+<h3>日产量超2800吨 我国海上最大规模浅层岩性油田项目全面投产</h3>
+<p>
+ | 来源: http://www.bjszxc.com/blog/20260624-907.shtml
+</p>
+
+<h3>SK海力士股价飙涨11%，市值突破1万亿美元大关</h3>
+<p>
+ | 来源: http://noo7.net/blog/20260624-905.shtml
+</p>
+
+<h3>小米大模型降价</h3>
+<p>
+ | 来源: http://www.hkcxwl.com/blog/20260624-432.shtml
+</p>
+
+<h3>云南将建3个输变电工程项目</h3>
+<p>
+ | 来源: http://pr.suerda.com/blog/20260624-929.shtml
+</p>
+
+<h3>年内578家A股公司发布回购预案 涉及金额超1000亿元</h3>
+<p>
+ | 来源: http://www.lqhbjk.com/blog/20260624-962.shtml
+</p>
+
+<h3>河北秦皇岛市北戴河区发生2.6级地震</h3>
+<p>
+ | 来源: http://www.hkcttcar.com/blog/20260624-886.shtml
+</p>
+
+<h3>中信建投：机器人是AI最好的物理载体之一，看好板块行情演绎</h3>
+<p>
+ | 来源: http://www.cm5g.com/blog/20260624-557.shtml
+</p>
+
+<h3>AI眼镜新品频发 产业链追“光”逐“芯”</h3>
+<p>
+ | 来源: http://www.lqhbjk.com/blog/20260624-490.shtml
+</p>
+
+<h3>境外机构非法跨境展业被“叫停”，持牌券商迎业务增长新机遇</h3>
+<p>
+ | 来源: http://www.txegt.com.cn/blog/20260624-534.shtml
+</p>
+
+<h3>京东否认竞购英国电商平台The Very Group</h3>
+<p>
+ | 来源: http://www.cian110.com/blog/20260624-886.shtml
+</p>
+
+<h3>据港交所文件：浙江晶通新材料集团股份有限公司向港交所提交上市申请书</h3>
+<p>
+ | 来源: http://wheat.org.cn/blog/20260624-516.shtml
+</p>
+
+<h3>外资持续流入 国际投行看好A股三大投资方向</h3>
+<p>
+ | 来源: http://www.hkcxwl.com/blog/20260624-785.shtml
+</p>
+
+<h3>前4月重点监测跨境电商进口平台销售额增长4.3%</h3>
+<p>
+ | 来源: http://www.chuang-ao.cn/blog/20260624-575.shtml
+</p>
+
+<h3>伊朗官员：美国处于“请求”与伊朗达成协议的地位</h3>
+<p>
+ | 来源: http://www.hengaodebj.com/blog/20260624-641.shtml
+</p>
+
+<h3>初步评估显示哈马斯新任军事领导人被打死</h3>
+<p>
+ | 来源: http://pathosans.spraychina.com.cn/blog/20260624-590.shtml
+</p>
+
+<h3>美国公布月球基地建设路线图</h3>
+<p>
+ | 来源: http://an-lin.cn/blog/20260624-642.shtml
+</p>
