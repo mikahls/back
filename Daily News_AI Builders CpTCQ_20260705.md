@@ -1,0 +1,502 @@
+<h1> AI Builders Digest 今日热点快报</h1>
+<p><strong>2026年07月05日 20时44分21秒(UTC+8)</strong></p>
+<hr>
+<h3>教育部部长怀进鹏在内蒙古调研</h3>
+<p>
+ | 来源: http://etalentlink.com/blog/20260705-587.shtml
+</p>
+
+<h3>古巴通过经济社会改革方案应对美国极限施压</h3>
+<p>
+ | 来源: http://www.candor-co.com/blog/20260705-380.shtml
+</p>
+
+<h3>日本40年期国债收益率上升5个基点至3.71%</h3>
+<p>
+ | 来源: http://noo7.net/blog/20260705-828.shtml
+</p>
+
+<h3>WTI原油期货转涨</h3>
+<p>
+ | 来源: http://www.qiyitech.cn/blog/20260705-157.shtml
+</p>
+
+<h3>中国驻美大使谢锋：工商界朋友既是中美关系巨轮的“乘客”，也是“水手”</h3>
+<p>
+ | 来源: http://www.aktmembrane.com/blog/20260705-470.shtml
+</p>
+
+<h3>中国驻美大使谢锋：人工智能不能野蛮生长、跑马圈地</h3>
+<p>
+ | 来源: http://shop.jiashilian.com/blog/20260705-264.shtml
+</p>
+
+<h3>中国驻美大使谢锋：中国企业合理关切应该尽快得到解决</h3>
+<p>
+ | 来源: http://www.wmh.cn/blog/20260705-212.shtml
+</p>
+
+<h3>中国驻美大使谢锋：台湾问题、民主人权、道路制度、发展权利是中方不容挑战的四条红线</h3>
+<p>
+ | 来源: http://www.chjiafang.com/blog/20260705-660.shtml
+</p>
+
+<h3>全国铁路预计今日发送1973万人次，加开旅客列车1028列</h3>
+<p>
+ | 来源: http://www.huhangonline.com/blog/20260705-704.shtml
+</p>
+
+<h3>钱凯港商业运营周年庆在秘鲁举行</h3>
+<p>
+ | 来源: http://www.tjhhgl.com/blog/20260705-937.shtml
+</p>
+
+<h3>利比亚主要政治力量就选举路线图达成一致</h3>
+<p>
+ | 来源: http://www.qinheweb.com/blog/20260705-105.shtml
+</p>
+
+<h3>杰瑞股份：今年以来，公司燃气轮机发电机组销售价格已多次上涨</h3>
+<p>
+ | 来源: http://wap.tjhualitong.cn/blog/20260705-246.shtml
+</p>
+
+<h3>2026年端午档新片总票房破8000万元</h3>
+<p>
+ | 来源: http://www.aiteou.com/blog/20260705-433.shtml
+</p>
+
+<h3>现货白银日内跌幅扩大至3%</h3>
+<p>
+ | 来源: http://www.tzqc.js.cn/blog/20260705-759.shtml
+</p>
+
+<h3>京东数字人直播商家数量暴增5倍 AI成618增长核心引擎</h3>
+<p>
+ | 来源: http://www.tjztzt.com/blog/20260705-790.shtml
+</p>
+
+<h3>王文涛部长会见加拿大工业部长乔利和工商界代表</h3>
+<p>
+ | 来源: http://www.tjhhgl.com/blog/20260705-223.shtml
+</p>
+
+<h3>瑞士外交部证实美伊会谈取消</h3>
+<p>
+ | 来源: http://www.baolongplastic.com/blog/20260705-375.shtml
+</p>
+
+<h3>银河通用机器人发布全球首个人形机器人通用小脑GPT基础模型</h3>
+<p>
+ | 来源: http://xc-electric.cn/blog/20260705-400.shtml
+</p>
+
+<h3>白宫向美国会高层通报美伊谅解备忘录细节</h3>
+<p>
+ | 来源: http://www.shfjki.com/blog/20260705-735.shtml
+</p>
+
+<h3>影片《玩具总动员5》票房突破2000万元</h3>
+<p>
+ | 来源: http://www.jesdy.com/blog/20260705-704.shtml
+</p>
+
+<h3>马来西亚5月CPI同比上涨2%，预估为2.1%</h3>
+<p>
+ | 来源: http://www.yowelt.com/blog/20260705-888.shtml
+</p>
+
+<h3>COMEX黄金期货跌超2%</h3>
+<p>
+ | 来源: http://www.imsilicon.com/blog/20260705-899.shtml
+</p>
+
+<h3>马来西亚5月出口同比增长45.3%，预计29.7%</h3>
+<p>
+ | 来源: http://www.dragon-bite.com/blog/20260705-455.shtml
+</p>
+
+<h3>三星电子股价下跌3% 抹去此前的涨幅</h3>
+<p>
+ | 来源: http://xycyzl.com/blog/20260705-893.shtml
+</p>
+
+<h3>日本核心CPI连续57个月上涨</h3>
+<p>
+ | 来源: http://safe.ucantime.com/blog/20260705-748.shtml
+</p>
+
+<h3>印度Nifty IT指数下跌6.4%，为自2月4日以来的最大跌幅</h3>
+<p>
+ | 来源: http://www.chezhicars.com/blog/20260705-274.shtml
+</p>
+
+<h3>韩国KOSPI指数转跌，此前一度大涨3%</h3>
+<p>
+ | 来源: http://www.augustcaster.com/blog/20260705-396.shtml
+</p>
+
+<h3>以色列总理称不会从黎南部撤军</h3>
+<p>
+ | 来源: http://www.carinway.com/blog/20260705-136.shtml
+</p>
+
+<h3>高盛将年底黄金目标价下调500美元，至每盎司4900美元，因预计美联储今年不会降息</h3>
+<p>
+ | 来源: http://www.etmval.com/blog/20260705-148.shtml
+</p>
+
+<h3>全国首单水土保持公共数据产品交易成功落地</h3>
+<p>
+ | 来源: http://wheat.org.cn/blog/20260705-710.shtml
+</p>
+
+<h3>法国卢浮宫新设“安全协调员”一职</h3>
+<p>
+ | 来源: http://www.cqydcy.com/blog/20260705-354.shtml
+</p>
+
+<h3>蔡崇信：阿里全面投入AI，全栈布局有巨大优势</h3>
+<p>
+ | 来源: http://aiteou.com/blog/20260705-880.shtml
+</p>
+
+<h3>摩根大通将埃森哲目标价从201美元下调至179美元</h3>
+<p>
+ | 来源: http://www.tzqc.js.cn/blog/20260705-177.shtml
+</p>
+
+<h3>农业农村部部长张柱会见德国联邦农业、食品和国土部部长阿洛伊斯·赖纳</h3>
+<p>
+ | 来源: http://www.intransing.com/blog/20260705-232.shtml
+</p>
+
+<h3>中国东方航空开通上海至瑞士苏黎世直飞航线</h3>
+<p>
+ | 来源: http://www.airfast.com/blog/20260705-209.shtml
+</p>
+
+<h3>刚果（金）埃博拉疫情死亡病例超200例</h3>
+<p>
+ | 来源: http://www.qinheweb.com/blog/20260705-519.shtml
+</p>
+
+<h3>科研人员开发出整合神经元功能、结构和分子的新平台</h3>
+<p>
+ | 来源: http://shop.yuqingyang.com.cn/blog/20260705-267.shtml
+</p>
+
+<h3>首支32强诞生 墨西哥1-0战胜韩国</h3>
+<p>
+ | 来源: http://www.tjhhgl.com/blog/20260705-538.shtml
+</p>
+
+<h3>中国驻美国大使谢锋会见维萨公司首席执行官麦凯恩</h3>
+<p>
+ | 来源: http://www.qiuhaibo.com/blog/20260705-384.shtml
+</p>
+
+<h3>中国驻美国大使谢锋会见雅诗兰黛集团总裁兼首席执行官司泰峰</h3>
+<p>
+ | 来源: http://www.cnqpq.com/blog/20260705-991.shtml
+</p>
+
+<h3>万斯警告以色列别不知好歹</h3>
+<p>
+ | 来源: http://www.zhengrong.com.cn/blog/20260705-210.shtml
+</p>
+
+<h3>摩根大通将阿斯麦目标股价从930欧元上调至1174欧元</h3>
+<p>
+ | 来源: http://www.jiamaofood.com/blog/20260705-274.shtml
+</p>
+
+<h3>今天全国铁路预计发送旅客1900万人次</h3>
+<p>
+ | 来源: http://baolongplastic.com/blog/20260705-956.shtml
+</p>
+
+<h3>英诺赛科现有产品不受德国慕尼黑地区法院诉讼结果影响</h3>
+<p>
+ | 来源: http://www.cm5g.com/blog/20260705-745.shtml
+</p>
+
+<h3>厄瓜多尔总统：打击毒品和有组织犯罪进入新阶段</h3>
+<p>
+ | 来源: http://www.bjtcpip.com/blog/20260705-566.shtml
+</p>
+
+<h3>美国白宫称推迟派遣代表团赴瑞士谈判</h3>
+<p>
+ | 来源: http://www.qzj99.com/blog/20260705-505.shtml
+</p>
+
+<h3>日本一小学发生火灾 约300名学生被疏散</h3>
+<p>
+ | 来源: http://www.zcznled.com/blog/20260705-501.shtml
+</p>
+
+<h3>多所新型研究型大学扩招 新增人工智能、未来机器人等热门专业</h3>
+<p>
+ | 来源: http://www.yx-gas.com/blog/20260705-436.shtml
+</p>
+
+<h3>廖岷会见标普国际信用评级公司主权信用评级全球主管罗伯托·西丰—阿雷瓦罗</h3>
+<p>
+ | 来源: http://www.sxsslgcxh.com/blog/20260705-383.shtml
+</p>
+
+<h3>端午出行注意！七省份十县区连续降雨 公路交通存在高风险</h3>
+<p>
+ | 来源: http://yyrclub.cn/blog/20260705-379.shtml
+</p>
+
+<h3>海南自由贸易港封关半年累计出入境165.4万人次</h3>
+<p>
+ | 来源: http://sh-jingweilaw.com/blog/20260705-835.shtml
+</p>
+
+<h3>伯纳姆赢得议会补选 或将挑战英国首相职位</h3>
+<p>
+ | 来源: http://www.thuni-h.com/blog/20260705-623.shtml
+</p>
+
+<h3>韩国国会启动选票短缺事件国政调查</h3>
+<p>
+ | 来源: http://thuni-h.com/blog/20260705-896.shtml
+</p>
+
+<h3>以色列正就保留在黎驻军问题与美谈判</h3>
+<p>
+ | 来源: http://www.cnc.js.cn/blog/20260705-651.shtml
+</p>
+
+<h3>全球最大的黄金ETF SPDR Gold Trust持仓较前日增加7.42吨</h3>
+<p>
+ | 来源: http://tjhhgl.com/blog/20260705-956.shtml
+</p>
+
+<h3>联合国秘书长对苏丹中部战事升级深表担忧</h3>
+<p>
+ | 来源: http://www.bj-bkjc.com/blog/20260705-297.shtml
+</p>
+
+<h3>伊朗称若美国违反谅解备忘录将坚决反制</h3>
+<p>
+ | 来源: http://www.wmh.cn/blog/20260705-705.shtml
+</p>
+
+<h3>纽约期金失守4200美元/盎司</h3>
+<p>
+ | 来源: http://www.jesdy.com/blog/20260705-817.shtml
+</p>
+
+<h3>西藏首座大型水电站通过竣工验收</h3>
+<p>
+ | 来源: http://www.etmval.com/blog/20260705-766.shtml
+</p>
+
+<h3>俄外交部再批日本再军事化</h3>
+<p>
+ | 来源: http://www.huhangonline.com/blog/20260705-782.shtml
+</p>
+
+<h3>中欧班列年开行量十年间增长10.8倍</h3>
+<p>
+ | 来源: http://pr.suerda.com/blog/20260705-118.shtml
+</p>
+
+<h3>青海海西州直辖区发生3.0级地震 震源深度10千米</h3>
+<p>
+ | 来源: http://www.dragon-bite.com/blog/20260705-336.shtml
+</p>
+
+<h3>现货白银失守65美元/盎司</h3>
+<p>
+ | 来源: http://www.intransing.com/blog/20260705-149.shtml
+</p>
+
+<h3>今年端午档上映影片数量创近十年同期新高</h3>
+<p>
+ | 来源: http://shop.yuqingyang.com.cn/blog/20260705-488.shtml
+</p>
+
+<h3>湖北发布暴雨橙色预警 局地有大暴雨</h3>
+<p>
+ | 来源: http://www.carinway.com/blog/20260705-682.shtml
+</p>
+
+<h3>中澳校企合作开发无铟叠层光伏电池</h3>
+<p>
+ | 来源: http://www.chuang-ao.cn/blog/20260705-838.shtml
+</p>
+
+<h3>永福股份与福建省建筑设计院签署战略合作协议</h3>
+<p>
+ | 来源: http://sz.sawenow.com/blog/20260705-188.shtml
+</p>
+
+<h3>厦门二手房销售价格连续三月上涨，新房市场同步企稳</h3>
+<p>
+ | 来源: http://www.fiberer.com/blog/20260705-845.shtml
+</p>
+
+<h3>长三角铁路今日预计发送旅客415万人 增开列车217列</h3>
+<p>
+ | 来源: http://www.yf-syc.com/blog/20260705-373.shtml
+</p>
+
+<h3>伊朗表示伊美谅解备忘录签署后仍将坚守底线</h3>
+<p>
+ | 来源: http://www.gxzhongshuo.com/blog/20260705-383.shtml
+</p>
+
+<h3>今年端午假期整体出游人群规模预计较去年同期增长4%</h3>
+<p>
+ | 来源: http://www.baolongplastic.com/blog/20260705-903.shtml
+</p>
+
+<h3>SK海力士股价涨幅扩大至7%</h3>
+<p>
+ | 来源: http://etalentlink.com/blog/20260705-128.shtml
+</p>
+
+<h3>我国单机容量最大高原山地风电项目投运</h3>
+<p>
+ | 来源: http://tjsatou.com/blog/20260705-256.shtml
+</p>
+
+<h3>美副总统暂不赴瑞士与伊朗谈判</h3>
+<p>
+ | 来源: http://sh-jingweilaw.com/blog/20260705-750.shtml
+</p>
+
+<h3>铁路上海站今迎端午小长假客流最高峰 预计发送旅客70.8万人次</h3>
+<p>
+ | 来源: http://www.saner.cn/blog/20260705-213.shtml
+</p>
+
+<h3>Meta据悉同数据中心公司Crusoe签署AI算力协议</h3>
+<p>
+ | 来源: http://www.hengaodebj.com/blog/20260705-800.shtml
+</p>
+
+<h3>美元兑日元再次短线走低，回落至161下方，日内跌0.22%</h3>
+<p>
+ | 来源: http://tjmbtgt.com/blog/20260705-656.shtml
+</p>
+
+<h3>现代汽车将收购软银持有的波士顿动力公司股份</h3>
+<p>
+ | 来源: http://www.ncqt.cn/blog/20260705-493.shtml
+</p>
+
+<h3>马斯克：特斯拉的信用评级“低得离谱”</h3>
+<p>
+ | 来源: http://tjmws.com/blog/20260705-906.shtml
+</p>
+
+<h3>韩国综指涨幅扩大至3%</h3>
+<p>
+ | 来源: http://hdhc.com.cn/blog/20260705-440.shtml
+</p>
+
+<h3>马来西亚棕榈油委员会：预计7月份毛棕榈油的交易价格将在每吨4400林吉特至4650林吉特之间</h3>
+<p>
+ | 来源: http://eaching.com/blog/20260705-603.shtml
+</p>
+
+<h3>雨水频繁，交通运输部维持强降雨三级防御响应</h3>
+<p>
+ | 来源: http://www.wmh.cn/blog/20260705-564.shtml
+</p>
+
+<h3>美防长当面批评北约盟友</h3>
+<p>
+ | 来源: http://www.hengaodebj.com/blog/20260705-669.shtml
+</p>
+
+<h3>第二十四届中国·海峡创新项目成果交易会在榕举行</h3>
+<p>
+ | 来源: http://www.cnqpq.com/blog/20260705-524.shtml
+</p>
+
+<h3>现货白银日内跌幅扩大至1%</h3>
+<p>
+ | 来源: http://www.autopeitao.com/blog/20260705-621.shtml
+</p>
+
+<h3>日本央行副行长：将继续进一步加息</h3>
+<p>
+ | 来源: http://tjhhgl.com/blog/20260705-231.shtml
+</p>
+
+<h3>新疆阿克苏地区乌什县发生3.2级地震 震源深度10公里</h3>
+<p>
+ | 来源: http://huatailaws.com/blog/20260705-109.shtml
+</p>
+
+<h3>美国启动针对德国药品的301条款调查</h3>
+<p>
+ | 来源: http://www.qiyitech.cn/blog/20260705-630.shtml
+</p>
+
+<h3>加拿大6-0大胜卡塔尔 收获小组赛首胜</h3>
+<p>
+ | 来源: http://www.airfast.com/blog/20260705-485.shtml
+</p>
+
+<h3>国家邮政局：因地制宜加快邮政快递枢纽节点改造升级</h3>
+<p>
+ | 来源: http://www.dhqlqx.com/blog/20260705-891.shtml
+</p>
+
+<h3>三星电子、SK海力士股价创下历史新高</h3>
+<p>
+ | 来源: http://www.lottiesilicone.com/blog/20260705-882.shtml
+</p>
+
+<h3>日本央行会议纪要：需要更多时间来确认中东局势发展对日本经济和物价的影响</h3>
+<p>
+ | 来源: http://aiteou.com/blog/20260705-582.shtml
+</p>
+
+<h3>美军称在东太平洋打击一艘“贩毒船” 致3人死亡</h3>
+<p>
+ | 来源: http://www.cm5g.com/blog/20260705-272.shtml
+</p>
+
+<h3>广州市粤港澳大湾区人工智能应用赋能中心正式成立并揭牌</h3>
+<p>
+ | 来源: http://www.jesdy.com/blog/20260705-314.shtml
+</p>
+
+<h3>现货黄金失守4190美元/盎司</h3>
+<p>
+ | 来源: http://www.dfkbedu.com/blog/20260705-714.shtml
+</p>
+
+<h3>新疆吐鲁番市托克逊县发生3.2级地震</h3>
+<p>
+ | 来源: http://www.chinabo.org/blog/20260705-527.shtml
+</p>
+
+<h3>国家邮政局：加快推进无人车、无人机等在邮政快递行业试点应用</h3>
+<p>
+ | 来源: http://www.ccxtdt.com/blog/20260705-148.shtml
+</p>
+
+<h3>日本5月核心CPI同比增长1.4%，预期1.4%，前值1.4%</h3>
+<p>
+ | 来源: http://www.glmckj.cn/blog/20260705-971.shtml
+</p>
+
+<h3>美军宣布解除对伊海上封锁</h3>
+<p>
+ | 来源: http://www.huhangonline.com/blog/20260705-162.shtml
+</p>
+
+<h3>霍尔木兹海峡开始有大型商船通行</h3>
+<p>
+ | 来源: http://www.dzlg.net/blog/20260705-656.shtml
+</p>
