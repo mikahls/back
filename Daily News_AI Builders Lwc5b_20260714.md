@@ -1,0 +1,502 @@
+<h1> AI Builders Digest 今日热点快报</h1>
+<p><strong>2026年07月14日 02时54分31秒(UTC+8)</strong></p>
+<hr>
+<h3>浙江舟山嵊泗疏散旅客9000余人 明起17条客运航线停航</h3>
+<p>
+ | 来源: http://www.njypj.cn/m/20260713-882.shtml
+</p>
+
+<h3>恒生科技指数跌超1%，早盘涨超2%</h3>
+<p>
+ | 来源: http://www.dfkbedu.com/m/20260713-489.shtml
+</p>
+
+<h3>沪深京三市成交额超2万亿元，较上日此时放量403亿元</h3>
+<p>
+ | 来源: http://www.kaimori.cn/m/20260713-137.shtml
+</p>
+
+<h3>天赐材料回应“固态电池技术突破”小作文：五年内影响有限</h3>
+<p>
+ | 来源: http://www.hidier.com/blog/20260713-320.shtml
+</p>
+
+<h3>特朗普称伊朗想达成协议</h3>
+<p>
+ | 来源: http://www.candor-co.com/m/20260713-340.shtml
+</p>
+
+<h3>次新股华润新能源午后触及跌停</h3>
+<p>
+ | 来源: http://www.etmval.com/m/20260713-100.shtml
+</p>
+
+<h3>港股恒生指数跌幅达1%</h3>
+<p>
+ | 来源: http://chinajinxian.com/blog/20260713-118.shtml
+</p>
+
+<h3>南向资金净买入超110亿港元</h3>
+<p>
+ | 来源: http://www.njypj.cn/blog/20260713-108.shtml
+</p>
+
+<h3>韩国最高法院维持尹锡悦涉嫌妨碍逮捕案二审判决</h3>
+<p>
+ | 来源: http://www.huhangonline.com/m/20260713-321.shtml
+</p>
+
+<h3>港股半导体、算力硬件股午后快速拉升，兆易创新涨超18%</h3>
+<p>
+ | 来源: http://www.abcd6.net/m/20260713-685.shtml
+</p>
+
+<h3>CPO、光通信方向午后拉升，深科达20cm涨停</h3>
+<p>
+ | 来源: http://jx.yyltw.com/m/20260713-331.shtml
+</p>
+
+<h3>科创50指数涨幅扩大至4%</h3>
+<p>
+ | 来源: http://www.hkcxwl.com/blog/20260713-178.shtml
+</p>
+
+<h3>创业板指午后再度涨超1%</h3>
+<p>
+ | 来源: http://yyrclub.cn/m/20260713-261.shtml
+</p>
+
+<h3>先进封装板块午后再度拉升，长电科技、深科技双双涨停</h3>
+<p>
+ | 来源: http://www.xinghualou.net.cn/m/20260713-257.shtml
+</p>
+
+<h3>沐曦股份午后短线走低，股价回落至1000元以内</h3>
+<p>
+ | 来源: http://www.qzj99.com/m/20260713-557.shtml
+</p>
+
+<h3>中药板块午后短线拉升，华森制药涨停</h3>
+<p>
+ | 来源: http://www.coilsjs.com/m/20260713-939.shtml
+</p>
+
+<h3>中方呼吁各国共同遏制打击冲突中的性暴力</h3>
+<p>
+ | 来源: http://www.qzj99.com/blog/20260713-546.shtml
+</p>
+
+<h3>沐曦股份：近期媒体报道的公司订单情况不属实</h3>
+<p>
+ | 来源: http://www.yowelt.com/m/20260713-203.shtml
+</p>
+
+<h3>美军称打击了约90个伊朗军事目标</h3>
+<p>
+ | 来源: http://www.saner.cn/m/20260713-441.shtml
+</p>
+
+<h3>广西南宁强降雨已致26人死亡 7人失联</h3>
+<p>
+ | 来源: http://www.yf-syc.com/m/20260713-106.shtml
+</p>
+
+<h3>集邦咨询：预估第三季Server DRAM合约价将季增13%—18%</h3>
+<p>
+ | 来源: http://www.xinghualou.net.cn/m/20260713-822.shtml
+</p>
+
+<h3>大连发布暴雨红色预警 启动防汛应急响应</h3>
+<p>
+ | 来源: http://yyrclub.cn/m/20260713-677.shtml
+</p>
+
+<h3>山东省机器人和智能装备产业对接活动在济南举办</h3>
+<p>
+ | 来源: http://jiamaofood.com/m/20260713-903.shtml
+</p>
+
+<h3>蚂蚁灵波开源全球首个具身视频基模</h3>
+<p>
+ | 来源: http://www.huaiheedu.com/blog/20260713-866.shtml
+</p>
+
+<h3>7月9日午间公告一览：完美医疗销售合约价值同比增加12.1%</h3>
+<p>
+ | 来源: http://www.gxzhongshuo.com/m/20260713-856.shtml
+</p>
+
+<h3>港股午评：恒生指数跌0.78%，恒生科技指数跌0.06%</h3>
+<p>
+ | 来源: http://eachiing.com/m/20260713-947.shtml
+</p>
+
+<h3>小鹏Robotaxi开启内测，何小鹏称Robotaxi是小鹏迈向“机器人汽车”的重要一步</h3>
+<p>
+ | 来源: http://hengaodebj.com/m/20260713-224.shtml
+</p>
+
+<h3>天津鲁电新能源投资合伙企业成立，出资额约14亿元</h3>
+<p>
+ | 来源: http://www.xinghualou.net.cn/blog/20260713-411.shtml
+</p>
+
+<h3>晨丰科技等在河北成立能源公司，含储能技术服务业务</h3>
+<p>
+ | 来源: http://dragon-bite.com/m/20260713-266.shtml
+</p>
+
+<h3>国家防总组织多部门联合会商 研究部署超强台风“巴威”防御工作</h3>
+<p>
+ | 来源: http://www.abcd6.net/blog/20260713-613.shtml
+</p>
+
+<h3>期货午评：能源化工持续大涨！有色、贵金属集体下挫，碳酸锂大跌超5%</h3>
+<p>
+ | 来源: http://yhzpw.net/blog/20260713-545.shtml
+</p>
+
+<h3>ETF两市成交额报3088.97亿元，较昨日此时缩量64.59亿元</h3>
+<p>
+ | 来源: http://www.dragon-bite.com/m/20260713-868.shtml
+</p>
+
+<h3>ETF午评：标普油气ETF领涨4.67%，稀有金属ETF领跌5.79%</h3>
+<p>
+ | 来源: http://www.sarchee.com/m/20260713-605.shtml
+</p>
+
+<h3>A股午评：科创50指数半日涨超3%，半导体、国产算力方向集体走强</h3>
+<p>
+ | 来源: http://chejia.jmyj.net.cn/m/20260713-115.shtml
+</p>
+
+<h3>股指期货早盘收盘 主力合约涨跌互现</h3>
+<p>
+ | 来源: http://www.tjhhgl.com/blog/20260713-615.shtml
+</p>
+
+<h3>沪深京三市成交额超1.7万亿元</h3>
+<p>
+ | 来源: http://www.kayin.com.cn/m/20260713-526.shtml
+</p>
+
+<h3>浙江调整防台风应急响应为Ⅳ级</h3>
+<p>
+ | 来源: http://www.thuni-h.com/blog/20260713-120.shtml
+</p>
+
+<h3>2026年APEC林业部长级会议将于7月27日到28日召开</h3>
+<p>
+ | 来源: http://www.coilsjs.com/m/20260713-342.shtml
+</p>
+
+<h3>伊朗称打击科威特和巴林的美军基地</h3>
+<p>
+ | 来源: http://www.aiteou.com/m/20260713-134.shtml
+</p>
+
+<h3>美联储官员对通胀预期和货币政策分歧明显</h3>
+<p>
+ | 来源: http://wheat.org.cn/m/20260713-210.shtml
+</p>
+
+<h3>韩国对泰国无缝铜管作出反倾销终裁</h3>
+<p>
+ | 来源: http://www.abcd6.net/m/20260713-698.shtml
+</p>
+
+<h3>伊朗代表致函联合国 强烈谴责美国侵略行径</h3>
+<p>
+ | 来源: http://www.kaimori.cn/blog/20260713-755.shtml
+</p>
+
+<h3>现货黄金失守4060美元/盎司 纽约期金失守4070美元/盎司</h3>
+<p>
+ | 来源: http://www.huhangonline.com/m/20260713-558.shtml
+</p>
+
+<h3>俄罗斯禁止石油公司从俄罗斯出口柴油</h3>
+<p>
+ | 来源: http://noo7.net/m/20260713-455.shtml
+</p>
+
+<h3>3.11%！上半年私募指增产品平均超额收益显著下降</h3>
+<p>
+ | 来源: http://www.skygp.com/m/20260713-193.shtml
+</p>
+
+<h3>今年6月全国受理网络举报同比下降3.4%</h3>
+<p>
+ | 来源: http://www.zongmeng123.com/m/20260713-792.shtml
+</p>
+
+<h3>国家医保局：2025年新增国谈药品已覆盖31万家定点医药机构 商保创新药目录落地情况符合预期</h3>
+<p>
+ | 来源: http://www.jnjsjl.com/m/20260713-498.shtml
+</p>
+
+<h3>普洛斯合作建设GW级源网荷储一体化智算产业基地</h3>
+<p>
+ | 来源: http://www.migun.net.cn/m/20260713-986.shtml
+</p>
+
+<h3>沪深京三市成交额超1.5万亿元，较上日此时缩量93亿元</h3>
+<p>
+ | 来源: http://thuni-h.com/m/20260713-415.shtml
+</p>
+
+<h3>西安升级发布高温红色预警信号 最高温将突破40℃</h3>
+<p>
+ | 来源: http://www.zongmeng123.com/m/20260713-188.shtml
+</p>
+
+<h3>锂矿板块持续走弱，天齐锂业连续两日跌停</h3>
+<p>
+ | 来源: http://www.kayin.com.cn/m/20260713-537.shtml
+</p>
+
+<h3>伊朗称袭击科威特和巴林的美军基地</h3>
+<p>
+ | 来源: http://www.sarchee.com/m/20260713-865.shtml
+</p>
+
+<h3>北证50指数跌幅扩大至2%</h3>
+<p>
+ | 来源: http://www.cm5g.com/m/20260713-311.shtml
+</p>
+
+<h3>伊朗代表致函联合国，强烈谴责美国侵略行径</h3>
+<p>
+ | 来源: http://www.cnmetech.com/m/20260713-148.shtml
+</p>
+
+<h3>广期所碳酸锂主力合约大跌6%</h3>
+<p>
+ | 来源: http://www.dlsccs.com/blog/20260713-243.shtml
+</p>
+
+<h3>南向资金净买入超90亿港元</h3>
+<p>
+ | 来源: http://www.fuli-guanjia.com/m/20260713-381.shtml
+</p>
+
+<h3>稀土永磁板块持续走低，中钢天源触及跌停</h3>
+<p>
+ | 来源: http://hongyi.jieyue.net/m/20260713-651.shtml
+</p>
+
+<h3>韩国综指跌幅扩大至1%</h3>
+<p>
+ | 来源: http://www.chuang-ao.cn/m/20260713-725.shtml
+</p>
+
+<h3>国家医保局：上半年全国医保系统共追回医保基金163.5亿元</h3>
+<p>
+ | 来源: http://www.d1cnc.com/m/20260713-360.shtml
+</p>
+
+<h3>广期所碳酸锂主力合约大跌5%</h3>
+<p>
+ | 来源: http://www.dfkbedu.com/m/20260713-337.shtml
+</p>
+
+<h3>韩国综指高开低走转跌 此前一度涨近4%</h3>
+<p>
+ | 来源: http://www.hengaodebj.com/m/20260713-368.shtml
+</p>
+
+<h3>北证50指数跌幅扩大至1%</h3>
+<p>
+ | 来源: http://www.bjtcpip.com/m/20260713-823.shtml
+</p>
+
+<h3>沪深京三市成交额超1.2万亿元，较上日此时缩量648亿元</h3>
+<p>
+ | 来源: http://www.wheat.org.cn/m/20260713-126.shtml
+</p>
+
+<h3>国家超算互联网核心节点正式上线</h3>
+<p>
+ | 来源: http://tms.862156.net/m/20260713-297.shtml
+</p>
+
+<h3>欧盟气候监测机构：西欧遭遇有记录以来最热6月</h3>
+<p>
+ | 来源: http://shunlijunjidian.com/m/20260713-963.shtml
+</p>
+
+<h3>科创50指数涨幅扩大至3%</h3>
+<p>
+ | 来源: http://www.intransing.com/blog/20260713-886.shtml
+</p>
+
+<h3>富时中国A50指数期货涨1%</h3>
+<p>
+ | 来源: http://tms.862156.net/m/20260713-738.shtml
+</p>
+
+<h3>福建启动防台风Ⅳ级应急响应</h3>
+<p>
+ | 来源: http://www.glmckj.cn/m/20260713-477.shtml
+</p>
+
+<h3>半导体材料板块持续走强，上海合晶20cm涨停</h3>
+<p>
+ | 来源: http://www.imsilicon.com/m/20260713-154.shtml
+</p>
+
+<h3>港股再度走高，恒生科技指数涨超2%</h3>
+<p>
+ | 来源: http://www.lottiesilicone.com/blog/20260713-272.shtml
+</p>
+
+<h3>先进封装板块再度拉升，华天科技等股涨停</h3>
+<p>
+ | 来源: http://www.cqydcy.com/blog/20260713-927.shtml
+</p>
+
+<h3>沪深京三市成交额超1万亿元，较上日此时缩量722亿元</h3>
+<p>
+ | 来源: http://www.tjhhgl.com/m/20260713-822.shtml
+</p>
+
+<h3>截至5月底 全国基本医保参保较去年同期增长超400万人</h3>
+<p>
+ | 来源: http://www.fuli-guanjia.com/m/20260713-350.shtml
+</p>
+
+<h3>上期所欧线集运主力合约大跌8%</h3>
+<p>
+ | 来源: http://dragon-bite.com/blog/20260713-962.shtml
+</p>
+
+<h3>伊朗议长：美国敢打 伊朗就还击</h3>
+<p>
+ | 来源: http://www.bethelfood.cn/m/20260713-453.shtml
+</p>
+
+<h3>A股三大指数全线翻绿</h3>
+<p>
+ | 来源: http://www.926.hk/m/20260713-795.shtml
+</p>
+
+<h3>开盘半小时 沪深京三市成交额达8514亿元</h3>
+<p>
+ | 来源: http://www.dragon-bite.com/blog/20260713-426.shtml
+</p>
+
+<h3>港股短线拉升，恒生科技指数涨超1%</h3>
+<p>
+ | 来源: http://yf-syc.com/m/20260713-662.shtml
+</p>
+
+<h3>南向资金净买入超60亿港元</h3>
+<p>
+ | 来源: http://www.fastchina.net/m/20260713-195.shtml
+</p>
+
+<h3>油气股持续拉升，通源石油涨超14%</h3>
+<p>
+ | 来源: http://www.cnc.js.cn/m/20260713-223.shtml
+</p>
+
+<h3>阶跃星辰AI智能体手机代工企业为华勤技术</h3>
+<p>
+ | 来源: http://www.cqsxjd.com/m/20260713-419.shtml
+</p>
+
+<h3>影视院线板块震荡上扬，欢瑞世纪涨停</h3>
+<p>
+ | 来源: http://www.jsxxwy.com/m/20260713-808.shtml
+</p>
+
+<h3>沪深京三市成交额超7000亿元，较上日此时缩量449亿元</h3>
+<p>
+ | 来源: http://www.bothcapital.com/m/20260713-211.shtml
+</p>
+
+<h3>港股新股齐云山食品涨幅扩大至200%</h3>
+<p>
+ | 来源: http://www.thuni-h.com/m/20260713-729.shtml
+</p>
+
+<h3>“平安渤海2026”联合巡航执法行动今日启动</h3>
+<p>
+ | 来源: http://www.wmh.cn/m/20260713-304.shtml
+</p>
+
+<h3>创新药板块低开高走，成都先导盘中涨超10%</h3>
+<p>
+ | 来源: http://www.naiweitech.com/m/20260713-422.shtml
+</p>
+
+<h3>能源金属、锂矿板块再度走低，融捷股份触及跌停</h3>
+<p>
+ | 来源: http://www.jingtouwang.com.cn/m/20260713-973.shtml
+</p>
+
+<h3>新加坡淡马锡拟加大AI投资</h3>
+<p>
+ | 来源: http://baolongplastic.com/m/20260713-555.shtml
+</p>
+
+<h3>电池板块短线走低，龙蟠科技跌停</h3>
+<p>
+ | 来源: http://www.aiteou.com/m/20260713-871.shtml
+</p>
+
+<h3>中国气象局启动重大气象灾害Ⅱ级应急响应</h3>
+<p>
+ | 来源: http://www.candor-co.com/blog/20260713-316.shtml
+</p>
+
+<h3>港股芯片板块盘初走高，兆易创新涨超13%</h3>
+<p>
+ | 来源: http://www.qiyitech.cn/blog/20260713-801.shtml
+</p>
+
+<h3>沪深京三市成交额超5000亿元</h3>
+<p>
+ | 来源: http://www.saner.cn/blog/20260713-506.shtml
+</p>
+
+<h3>房地产板块短线拉升</h3>
+<p>
+ | 来源: http://baolongplastic.com/blog/20260713-735.shtml
+</p>
+
+<h3>国际组织：中东战事带来的不确定性依然较高</h3>
+<p>
+ | 来源: http://www.huaiheedu.com/m/20260713-134.shtml
+</p>
+
+<h3>电网设备板块盘初活跃，柘中股份涨停</h3>
+<p>
+ | 来源: http://eachiing.com/m/20260713-951.shtml
+</p>
+
+<h3>浙江启动防台风Ⅳ级应急响应</h3>
+<p>
+ | 来源: http://www.cnqpq.com/m/20260713-384.shtml
+</p>
+
+<h3>算力租赁板块再度拉升，浪潮信息2连板创新高</h3>
+<p>
+ | 来源: http://www.jxzhijia.cn/m/20260713-384.shtml
+</p>
+
+<h3>古巴外长感谢136国支持联大讨论终止美国对古封锁</h3>
+<p>
+ | 来源: http://www.zyl100.com/m/20260713-401.shtml
+</p>
+
+<h3>国家统计局：6月国内黄金饰品和汽油价格分别下降8.7%和4.9%</h3>
+<p>
+ | 来源: http://www.wington.net/m/20260713-339.shtml
+</p>
+
+<h3>存储芯片板块盘初拉升，柏诚股份涨停</h3>
+<p>
+ | 来源: http://www.aiteou.com/m/20260713-240.shtml
+</p>
