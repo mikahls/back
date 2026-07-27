@@ -1,0 +1,502 @@
+<h1> AI Builders Digest 今日热点快报</h1>
+<p><strong>2026年07月27日 17时56分58秒(UTC+8)</strong></p>
+<hr>
+<h3>韩国瑜讽民进党遇事只会推卸责任：下回推给秦始皇</h3>
+<p>
+ | 来源: http://www.linoon.com/blog/20260727-142.shtml
+</p>
+
+<h3>郑丽文上凯道怒轰赖清德“没担当”：一定要让无耻的政权下台</h3>
+<p>
+ | 来源: http://www.ybm99.com/blog/20260727-895.shtml
+</p>
+
+<h3>20万人参加凯道游行！郑丽文高喊：一定要让无耻的民进党垮台</h3>
+<p>
+ | 来源: http://chinajinxian.com/blog/20260727-888.shtml
+</p>
+
+<h3>20万人参加凯道游行！蒋万安痛骂民进党“人民受够了”</h3>
+<p>
+ | 来源: http://ldeia.com/blog/20260727-758.shtml
+</p>
+
+<h3>摩洛哥突然停止受理入境申请，台当局承认</h3>
+<p>
+ | 来源: http://www.yf-syc.com/blog/20260727-820.shtml
+</p>
+
+<h3>郑丽文：只有中国国民党可以确保台海和平</h3>
+<p>
+ | 来源: http://www.xn--m8tq2a53m.com/blog/20260727-791.shtml
+</p>
+
+<h3>国民党全代会登场！吴伯雄交棒郑丽文，党代表提案恢复“国统纲领”</h3>
+<p>
+ | 来源: http://www.xinghualou.net.cn/blog/20260727-477.shtml
+</p>
+
+<h3>郑丽文颁卢秀燕一等奖章，两人热情相拥</h3>
+<p>
+ | 来源: http://www.cqydcy.com/blog/20260727-212.shtml
+</p>
+
+<h3>今天上凯道人数成关键！媒体人示警：若不够多，在野党等着被生吞活剥</h3>
+<p>
+ | 来源: http://www.lzfx.com.cn/blog/20260727-549.shtml
+</p>
+
+<h3>与民调专家戴立安决裂后，吴子嘉邀这位学术大咖接手民调设计工作</h3>
+<p>
+ | 来源: http://www.cannice.com/blog/20260727-588.shtml
+</p>
+
+<h3>“725上凯道游行”靠游览车动员？傅崐萁：老百姓会自发站出来</h3>
+<p>
+ | 来源: http://baolongplastic.com/blog/20260727-521.shtml
+</p>
+
+<h3>国民党全代会上午登场！马英九朱立伦缺席，王金平将参加</h3>
+<p>
+ | 来源: http://api.gxzyzwlw.com/blog/20260727-597.shtml
+</p>
+
+<h3>“7.25反毒油”游行四大看点，卓荣泰是否下台有一关键观察指标</h3>
+<p>
+ | 来源: http://www.chinanewman.cn/blog/20260727-364.shtml
+</p>
+
+<h3>侯友宜等至少12位县市长将参加！“凯道反毒油活动”现场流程曝光</h3>
+<p>
+ | 来源: http://www.qiuhaibo.com/blog/20260727-598.shtml
+</p>
+
+<h3>“725上凯道”今天登场！赖清德蛮横拒不妥协，决心跟蓝白拼到底</h3>
+<p>
+ | 来源: http://jzlzjz.com/blog/20260727-165.shtml
+</p>
+
+<h3>蒋万安借“725上凯道”成蓝营共主，“他在走马英九过去的路”</h3>
+<p>
+ | 来源: http://www.cqsxjd.com/blog/20260727-457.shtml
+</p>
+
+<h3>包庇毒油厂有猫腻？凌涛列“五大罪状”批民进党高官：检调应立即搜查</h3>
+<p>
+ | 来源: http://migun.net.cn/blog/20260727-820.shtml
+</p>
+
+<h3>绿营铁票仓松动了？罗旺哲爆：很多高雄民众将赴凯道参加游行</h3>
+<p>
+ | 来源: http://hengaodebj.com/blog/20260727-824.shtml
+</p>
+
+<h3>为毒油案拜会蓝白党团，卢秀燕痛批民进党</h3>
+<p>
+ | 来源: http://www.aktmembrane.com/blog/20260727-512.shtml
+</p>
+
+<h3>柯文哲曝个人财产遭全数冻结：绝不会向赖清德屈服、妥协</h3>
+<p>
+ | 来源: http://migun.net.cn/blog/20260727-247.shtml
+</p>
+
+<h3>毒油风暴未歇民进党却急着上架，蒋万安呛：叫赖清德、卓荣泰照三餐吃</h3>
+<p>
+ | 来源: http://www.nhjco.cn/blog/20260727-105.shtml
+</p>
+
+<h3>全联董事长也请辞，赖清德“防卫韧性委员会”顾问只剩1人</h3>
+<p>
+ | 来源: http://www.scminghua.cn/blog/20260727-204.shtml
+</p>
+
+<h3>号召上街反毒油，蒋万安：不站出来就是默认台湾人烂命一条</h3>
+<p>
+ | 来源: http://www.jkf1.top/blog/20260727-885.shtml
+</p>
+
+<h3>反毒油绝食青年现况曝光，罗智强透露最新行动</h3>
+<p>
+ | 来源: http://www.dadijianzhuxiushan.com/blog/20260727-284.shtml
+</p>
+
+<h3>蒋万安批赖清德与财团为伍</h3>
+<p>
+ | 来源: http://www.jingtouwang.com.cn/blog/20260727-952.shtml
+</p>
+
+<h3>韩国瑜要上凯道反毒油，郭正亮预测“韩粉”到场人数：民进党急了</h3>
+<p>
+ | 来源: http://www.jsxxwy.com/blog/20260727-972.shtml
+</p>
+
+<h3>蒋万安、卢秀燕、谢国梁开记者会：反对民进党当局上架致癌油产品</h3>
+<p>
+ | 来源: http://www.onlinebj.com/blog/20260727-676.shtml
+</p>
+
+<h3>台F-16战机失事致1名飞行员死亡，台空军被认定“重大违失”</h3>
+<p>
+ | 来源: http://www.vigorephoto.com/blog/20260727-302.shtml
+</p>
+
+<h3>放任马桶商采购炸药最终无法履约，台军方翻车</h3>
+<p>
+ | 来源: http://www.qinheweb.com/blog/20260727-669.shtml
+</p>
+
+<h3>“跪美”账单来了，台积电明年要涨价</h3>
+<p>
+ | 来源: http://www.yx-gas.com/blog/20260727-674.shtml
+</p>
+
+<h3>年底选情恐变天，郑丽文认了“这4县市”告急：蓝营陷入苦战</h3>
+<p>
+ | 来源: http://www.dadijianzhuxiushan.com/blog/20260727-697.shtml
+</p>
+
+<h3>7·25会上凯道吗？岛内最新投票结果出炉，郭正亮：至少30万人，赖清德才会道歉</h3>
+<p>
+ | 来源: http://www.an-lin.cn/blog/20260727-757.shtml
+</p>
+
+<h3>捷克众议长答凤凰记者：不会再有官方人员去台湾</h3>
+<p>
+ | 来源: http://www.jsxxwy.com/blog/20260727-324.shtml
+</p>
+
+<h3>绿营想安插自己人？公司副董年薪高达2000万元，王世坚都看不下去</h3>
+<p>
+ | 来源: http://www.petrol-coke.com/blog/20260727-402.shtml
+</p>
+
+<h3>台湾“毒油风暴”引民怨，涉事油厂高管遭声押，另有两人重金交保</h3>
+<p>
+ | 来源: http://www.qiangyang.com.cn/blog/20260727-613.shtml
+</p>
+
+<h3>为抗议毒油案蓝营青年绝食第5天，杨植斗妻子：心疼但全力支持</h3>
+<p>
+ | 来源: http://tjsatou.com/blog/20260727-456.shtml
+</p>
+
+<h3>民进党当局搞“断网演习”，游毓兰批：想把台湾推向战争边缘</h3>
+<p>
+ | 来源: http://www.huhangonline.com/blog/20260727-905.shtml
+</p>
+
+<h3>“7·25”多少人上街反毒油才能让赖清德道歉？郭正亮：突破30万</h3>
+<p>
+ | 来源: http://www.sarchee.com/blog/20260727-779.shtml
+</p>
+
+<h3>毒油案绿营官员为保官位甩锅业者？郭正亮：已进入“狗咬狗”阶段</h3>
+<p>
+ | 来源: http://www.ahycfj.com/blog/20260727-502.shtml
+</p>
+
+<h3>“毒油”事件发生20余天，台当局才调查事故原因，国民党民代狠批</h3>
+<p>
+ | 来源: http://www.jsxdaf.com/blog/20260727-444.shtml
+</p>
+
+<h3>毒油案发22天才启动事故调查，罗智强批民进党当局：挑战民众底线</h3>
+<p>
+ | 来源: http://www.jmvisa.com/blog/20260727-902.shtml
+</p>
+
+<h3>“机车”的民进党怕的不是车，是张雪</h3>
+<p>
+ | 来源: http://www.antu.com.cn/blog/20260727-195.shtml
+</p>
+
+<h3>预判2028：美国如何影响台湾地区选举</h3>
+<p>
+ | 来源: http://www.ybm99.com/blog/20260727-624.shtml
+</p>
+
+<h3>台军战备水一瓶预算新台币120元最后买35元，马文君喊话彻查</h3>
+<p>
+ | 来源: http://chejia.jmyj.net.cn/blog/20260727-108.shtml
+</p>
+
+<h3>“毒驾撞死人该不该死刑？”台民意机构审查量刑无共识送协商</h3>
+<p>
+ | 来源: http://noo7.net/blog/20260727-721.shtml
+</p>
+
+<h3>5年复印纸资料限3天交件？民进党议员挨轰：为打蒋万安恶整公务员</h3>
+<p>
+ | 来源: http://www.jsxxwy.com/blog/20260727-129.shtml
+</p>
+
+<h3>不排除提告！屡遭苏巧慧阵营抹黑，李四川竞办还原时间打脸</h3>
+<p>
+ | 来源: http://www.huizhongzixun.com/blog/20260727-384.shtml
+</p>
+
+<h3>“毒油”事件愈演愈烈，台高官还在“赶酒摊”，被批“喝得安心吗？”</h3>
+<p>
+ | 来源: http://www.airfast.com/blog/20260727-461.shtml
+</p>
+
+<h3>怕失焦？蓝白周六上凯道反毒油，马英九、柯文哲双双缺席</h3>
+<p>
+ | 来源: http://www.lzfx.com.cn/blog/20260727-203.shtml
+</p>
+
+<h3>绿营议员呛蒋万安“如丧考妣”，新党游智彬下战帖辩论“毒油事件”</h3>
+<p>
+ | 来源: http://www.scminghua.cn/blog/20260727-846.shtml
+</p>
+
+<h3>台湾毒油风暴扩大，郑丽文批赖清德害岛民众误食“台毒”</h3>
+<p>
+ | 来源: http://www.cnxinghuo.com/blog/20260727-832.shtml
+</p>
+
+<h3>台立法机构为“星链”放行，专家：台幻想难抵大陆完备反制能力</h3>
+<p>
+ | 来源: http://www.jxzhijia.cn/blog/20260727-244.shtml
+</p>
+
+<h3>韩国瑜允诺参加“7·25”凯道抗议，白营号召民众“风雨无阻”：让赖清德听见人民愤怒</h3>
+<p>
+ | 来源: http://www.jsxxwy.com/blog/20260727-283.shtml
+</p>
+
+<h3>蓝营青年绝食抗议毒油，“独派”上门蓄意闹场，遭对方一句话吓跑</h3>
+<p>
+ | 来源: http://www.kpdrf.com/blog/20260727-563.shtml
+</p>
+
+<h3>民进党想甩锅“毒油问题”给蓝营？董智森：怕选输导致赖清德下台</h3>
+<p>
+ | 来源: http://www.jingtouwang.com.cn/blog/20260727-203.shtml
+</p>
+
+<h3>郑丽文正式征召6位县市长拼连任：以“全垒打”气势迎接选举胜利</h3>
+<p>
+ | 来源: http://www.chinanewman.cn/blog/20260727-741.shtml
+</p>
+
+<h3>国民党正式提名蒋万安等六县市长拼连任，齐呼“全垒打”</h3>
+<p>
+ | 来源: http://www.bethelfood.cn/blog/20260727-763.shtml
+</p>
+
+<h3>国台办驳斥赖清德分裂谬论：再次暴露其“台独”立场冥顽不化</h3>
+<p>
+ | 来源: http://www.sigehui.com/blog/20260727-621.shtml
+</p>
+
+<h3>国台办回应卓荣泰涉两岸经贸言论</h3>
+<p>
+ | 来源: http://www.thuni-h.com/blog/20260727-322.shtml
+</p>
+
+<h3>台外事部门附和菲律宾蓄意挑衅，国台办回应</h3>
+<p>
+ | 来源: http://www.qinheweb.com/blog/20260727-889.shtml
+</p>
+
+<h3>台湾将进行“汉光42号演习”，首度加入网络断网，国台办回应</h3>
+<p>
+ | 来源: http://www.gdrongda.com/blog/20260727-937.shtml
+</p>
+
+<h3>蒋万安亲邀7月25日上凯道，韩国瑜点头了，侯友宜仍不沾锅？</h3>
+<p>
+ | 来源: http://ylnjxxwlw.com/blog/20260727-464.shtml
+</p>
+
+<h3>沈伯洋窜美试图扭转选战颓势？凌涛讽：实为走投无路</h3>
+<p>
+ | 来源: http://www.zlbigdata.com/blog/20260727-676.shtml
+</p>
+
+<h3>菲方围顶冲撞中方巡逻艇，帅化民：碰瓷碰得有点太悲情化</h3>
+<p>
+ | 来源: http://hengaodebj.com/blog/20260727-206.shtml
+</p>
+
+<h3>台陆委会称警员赴福建旅游遭隔离讯问，国台办回应</h3>
+<p>
+ | 来源: http://www.sxsslgcxh.com/blog/20260727-562.shtml
+</p>
+
+<h3>被劝停止绝食，蓝营青年坚定决心喊话王世坚</h3>
+<p>
+ | 来源: http://www.tjsatou.com/blog/20260727-555.shtml
+</p>
+
+<h3>嘉义市长选战上演食安攻防，张启楷批致癌油，邀对手王美惠上街</h3>
+<p>
+ | 来源: http://www.yowelt.com/blog/20260727-337.shtml
+</p>
+
+<h3>台当局威胁民众审慎赴陆，国台办：其行可耻其心可诛</h3>
+<p>
+ | 来源: http://www.cqydcy.com/blog/20260727-667.shtml
+</p>
+
+<h3>驻伊尔库茨克总领馆协助受伤台胞，国台办：职责所在</h3>
+<p>
+ | 来源: http://20629as423.51mypc.cn/blog/20260727-228.shtml
+</p>
+
+<h3>韩国瑜响应蒋万安号召，7月25日同上凯道反毒油</h3>
+<p>
+ | 来源: http://www.sarchee.com/blog/20260727-530.shtml
+</p>
+
+<h3>“7·25”游行成选举转折点！蓝营议员预言沈伯洋将彻底边缘化</h3>
+<p>
+ | 来源: http://www.lottiesilicone.com/blog/20260727-963.shtml
+</p>
+
+<h3>民进党深陷“毒油旋涡”，赖清德强打“抗中牌”转移焦点</h3>
+<p>
+ | 来源: http://pr.suerda.com/blog/20260727-216.shtml
+</p>
+
+<h3>邀苏贞昌女儿本周六上凯道，蓝营轰：继续神隐没资格选新北市长</h3>
+<p>
+ | 来源: http://nuclear-tech.cn/blog/20260727-214.shtml
+</p>
+
+<h3>“赖友友”露馅了！台防务部门标案3个月内3起出包</h3>
+<p>
+ | 来源: http://yhgsyy.com/blog/20260727-546.shtml
+</p>
+
+<h3>郑丽文称自己人缘很好、心很大，跟蒋万安卢秀燕都没有心结</h3>
+<p>
+ | 来源: http://nuclear-tech.cn/blog/20260727-369.shtml
+</p>
+
+<h3>“致癌油”风波引爆民怨，蓝营民代提案冻结卓荣泰薪水</h3>
+<p>
+ | 来源: http://www.qiuhaibo.com/blog/20260727-938.shtml
+</p>
+
+<h3>哪来自信选台南市长？谢龙介：我承诺当选市长只做4年，市民希望改变</h3>
+<p>
+ | 来源: http://www.candor-co.com/blog/20260727-277.shtml
+</p>
+
+<h3>岛内问题毒油再添两批次，蒋万安卢秀燕邀陈其迈等人参加“7·25反毒油”游行，绿营市长各种“找辙”</h3>
+<p>
+ | 来源: http://www.hidier.com/blog/20260727-931.shtml
+</p>
+
+<h3>蒋万安攻势凌厉逼迫卢秀燕寻求改变，“妈妈市长”不再不沾锅</h3>
+<p>
+ | 来源: http://www.fastchina.net/blog/20260727-113.shtml
+</p>
+
+<h3>民进党倒行逆施连“独派”都受不了，名师宣布退党开反水第一枪</h3>
+<p>
+ | 来源: http://store.eatgreen.cn/blog/20260727-973.shtml
+</p>
+
+<h3>陶晶莹点赞蒋万安贴文遭青鸟出征，蓝营声援，王世坚也看不下去了</h3>
+<p>
+ | 来源: http://www.vigorephoto.com/blog/20260727-311.shtml
+</p>
+
+<h3>国民党中央：赖当局应对食安危机敷衍了事，赖清德应负起责任</h3>
+<p>
+ | 来源: http://www.skygp.com/blog/20260727-916.shtml
+</p>
+
+<h3>台湾县市长“反毒油在线会议”登场，卢秀燕曝：十五六个县市报名参加</h3>
+<p>
+ | 来源: http://hengaodebj.com/blog/20260727-341.shtml
+</p>
+
+<h3>台军宁赔千万也要提前退伍，蓝营民代：他们不愿意为“台独”而战</h3>
+<p>
+ | 来源: http://migun.net.cn/blog/20260727-864.shtml
+</p>
+
+<h3>蓝营县市长召开“反毒油线上会议”，蒋万安喊话民进党</h3>
+<p>
+ | 来源: http://www.gjtt.cn/blog/20260727-587.shtml
+</p>
+
+<h3>记者追问潘孟安被网暴，钱怡君怒呛：所有媒体都要对民进党卑躬屈膝吗？</h3>
+<p>
+ | 来源: http://baolongplastic.com/blog/20260727-800.shtml
+</p>
+
+<h3>台南装修公司接炸药采购案违约，王鸿薇点名顾立雄：要不要出来道歉？</h3>
+<p>
+ | 来源: http://www.bjtcpip.com/blog/20260727-277.shtml
+</p>
+
+<h3>蓝营青年绝食竟被嘲讽，罗智强忆当年“马英九探望林义雄”批民进党无悲悯之心</h3>
+<p>
+ | 来源: http://www.lnyanzhi.com/blog/20260727-947.shtml
+</p>
+
+<h3>宁赔2000万也要提前退伍，根本原因是他们不想为“台独”而战</h3>
+<p>
+ | 来源: http://www.njypj.cn/blog/20260727-555.shtml
+</p>
+
+<h3>国民党团提“食安法”修正草案，最高罚锾10亿新台币并建通报平台</h3>
+<p>
+ | 来源: http://kanjinzhaowang.com/blog/20260727-442.shtml
+</p>
+
+<h3>国民党22日将正式提名蒋万安等六县市长拼连任</h3>
+<p>
+ | 来源: http://www.dadijianzhuxiushan.com/blog/20260727-831.shtml
+</p>
+
+<h3>李胜峰痛批民进党对不起台湾人，全党大贪腐还各种卖台</h3>
+<p>
+ | 来源: http://www.jingtouwang.com.cn/blog/20260727-917.shtml
+</p>
+
+<h3>蓝“立委”绝食反毒油</h3>
+<p>
+ | 来源: http://www.njypj.cn/blog/20260727-552.shtml
+</p>
+
+<h3>卢秀燕探视绝食青年，预告反毒油会议最快明后天宣布</h3>
+<p>
+ | 来源: http://www.jxzhijia.cn/blog/20260727-464.shtml
+</p>
+
+<h3>曝蓝营“反毒油F4”成形，岛内学者：绿营将面临最尴尬处境</h3>
+<p>
+ | 来源: http://www.onlinebj.com/blog/20260727-523.shtml
+</p>
+
+<h3>国民党全代会本周六登场，号召党公职、民众参加当天举行的凯道游行</h3>
+<p>
+ | 来源: http://www.chinafmyj.com/blog/20260727-307.shtml
+</p>
+
+<h3>台湾“毒油风暴”延烧！杀人不偿命，致癌油上餐桌，谁之过？</h3>
+<p>
+ | 来源: http://www.bjtcpip.com/blog/20260727-979.shtml
+</p>
+
+<h3>邀请高雄市长台南市长725上凯道？蒋万安喊话：不分蓝绿白捍卫食安</h3>
+<p>
+ | 来源: http://fastchina.net/blog/20260727-992.shtml
+</p>
+
+<h3>赖清德高喊“打造台湾好生活、爱民如亲”？国民党讽“反话大会”</h3>
+<p>
+ | 来源: http://www.cnc.js.cn/blog/20260727-467.shtml
+</p>
+
+<h3>蓝营青年绝食抗议“毒油”，郑丽文前去声援</h3>
+<p>
+ | 来源: http://www.jsxdaf.com/blog/20260727-148.shtml
+</p>
