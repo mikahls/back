@@ -1,0 +1,502 @@
+<h1> AI Builders Digest 今日热点快报</h1>
+<p><strong>2026年07月28日 21时32分12秒(UTC+8)</strong></p>
+<hr>
+<h3>ASML邀请马斯克参加内部技术大会，遭员工强烈反对</h3>
+<p>
+ | 来源: http://www.chinafmyj.com/blog/20260728-136.shtml
+</p>
+
+<h3>应对自动驾驶摄像头遇强光失明 美国工程师研发出“人造眼”</h3>
+<p>
+ | 来源: http://jesdy.com/blog/20260728-959.shtml
+</p>
+
+<h3>蓝箭朱雀二号遥六成功发射，一箭送双星上天</h3>
+<p>
+ | 来源: http://ldeia.com/blog/20260728-297.shtml
+</p>
+
+<h3>不设KPI、22岁北大元培学霸带队：中国团队勇闯世界模型原始创新 | 浪潮对话</h3>
+<p>
+ | 来源: http://www.yowelt.com/blog/20260728-465.shtml
+</p>
+
+<h3>云鲸上市前夕，张峻彬首谈恐惧：一把手的孤独无人能体会 | 浪潮对话</h3>
+<p>
+ | 来源: http://www.chinafmyj.com/blog/20260728-688.shtml
+</p>
+
+<h3>对话仲泰：不做应用做分发，24岁创始人要当AI时代的“大众点评”｜浪潮对话</h3>
+<p>
+ | 来源: http://www.aiteou.com/blog/20260728-658.shtml
+</p>
+
+<h3>谷歌阿里集体转向：为人服务时代过去了｜浪潮</h3>
+<p>
+ | 来源: http://wh.kkpark.cc/blog/20260728-904.shtml
+</p>
+
+<h3>对话追觅手机一号位：只做超高端，老板也只是一张“资源卡”</h3>
+<p>
+ | 来源: http://hdhc.com.cn/blog/20260728-813.shtml
+</p>
+
+<h3>对话理想CTO：我们为什么敢在芯片上“烧钱”？</h3>
+<p>
+ | 来源: http://www.jsxdaf.com/blog/20260728-787.shtml
+</p>
+
+<h3>5亿融资背后，和余轶南、赵哲伦谈真正的机器人进家 | 浪潮对话</h3>
+<p>
+ | 来源: http://www.an-lin.cn/blog/20260728-693.shtml
+</p>
+
+<h3>离开百亿独角兽后，许华哲说“绝对不能我们造身体，等美国造大脑” | 浪潮对话</h3>
+<p>
+ | 来源: http://www.nk-ys.com/blog/20260728-965.shtml
+</p>
+
+<h3>独家对话“苹果税”举报人：美国都免佣了，为何还收中国30%？ | 浪潮对话</h3>
+<p>
+ | 来源: http://www.tjkehui.com/blog/20260728-799.shtml
+</p>
+
+<h3>挑战微信、Facebook？他想用“AI身份”重构社交 | 浪潮对话</h3>
+<p>
+ | 来源: http://pr.suerda.com/blog/20260728-292.shtml
+</p>
+
+<h3>对话海信显示事业部营销总裁刘为杰：中国显示产业的“反超时刻”｜浪潮对话</h3>
+<p>
+ | 来源: http://www.hzmhong.com/blog/20260728-172.shtml
+</p>
+
+<h3>当“省、小、精”遇上中国速度，爱普生的四十年共生之路 | 浪潮对话</h3>
+<p>
+ | 来源: http://www.fastchina.net/blog/20260728-925.shtml
+</p>
+
+<h3>凯思博投资创始人郑方：从英伟达到今日人才，用人类解放逻辑押注AI赛道｜浪潮</h3>
+<p>
+ | 来源: http://yjmygs.com/blog/20260728-451.shtml
+</p>
+
+<h3>独家对话中国联通赵亚晖，AI时代的“数据燃料”是如何炼成的？ | 浪潮对话</h3>
+<p>
+ | 来源: http://www.huhangonline.com/blog/20260728-585.shtml
+</p>
+
+<h3>专访山西移动卢山：成立AI工作室，攻克业务场景AI落地难题 | 浪潮对话</h3>
+<p>
+ | 来源: http://www.gdrongda.com/blog/20260728-668.shtml
+</p>
+
+<h3>对话联通贾志强：云端AI如何颠覆拨号盘、短信、拍照体验？ | 浪潮对话</h3>
+<p>
+ | 来源: http://tms.862156.net/blog/20260728-924.shtml
+</p>
+
+<h3>700万播放、首期就拿下赞助，我们聊了聊这位AI歌手出道背后的故事 | 浪潮对话</h3>
+<p>
+ | 来源: http://www.jxzhijia.cn/blog/20260728-575.shtml
+</p>
+
+<h3>独家对话华映资本季薇：大国竞争下的具身智能赛道，中国必将诞生行业巨头 | 浪潮对话</h3>
+<p>
+ | 来源: http://www.yx-gas.com/blog/20260728-429.shtml
+</p>
+
+<h3>YU7发布当夜雷军深度复盘实录，首次回应“小米不是靠营销赢” | 浪潮对话</h3>
+<p>
+ | 来源: http://www.twoway.com.cn/blog/20260728-144.shtml
+</p>
+
+<h3>对话灵宝机器人COO张淼：价格不是关键，先解决机器人“能干啥”</h3>
+<p>
+ | 来源: http://www.yx-gas.com/blog/20260728-258.shtml
+</p>
+
+<h3>对话联通集团市场部总经理贾志强：AI走进家庭，联通的思考与布局｜浪潮</h3>
+<p>
+ | 来源: http://www.qiyitech.cn/blog/20260728-951.shtml
+</p>
+
+<h3>独家专访电信饶少阳：揭秘中国通信业反制美国封锁的三大杀招 | 浪潮对话</h3>
+<p>
+ | 来源: http://chinajinxian.com/blog/20260728-431.shtml
+</p>
+
+<h3>从旅游住宿到新式体验，民宿巨头看上一门新生意 | 浪潮对话</h3>
+<p>
+ | 来源: http://www.xl-2.com/blog/20260728-662.shtml
+</p>
+
+<h3>对话知乎周源：AI时代，最值钱的是这两件事 | 浪潮对话</h3>
+<p>
+ | 来源: http://www.jiamaofood.com/blog/20260728-354.shtml
+</p>
+
+<h3>负债20亿、8年“流亡”，重掌帅印的贾跃亭是惊天逆转还是最后豪赌？｜浪潮对话</h3>
+<p>
+ | 来源: http://www.poizoon.cn/blog/20260728-762.shtml
+</p>
+
+<h3>日产在华加速转型：以“中国创新”重塑全球竞争力｜浪潮对话</h3>
+<p>
+ | 来源: http://www.yowelt.com/blog/20260728-773.shtml
+</p>
+
+<h3>独家对话保时捷中国李楠：中国技术团队正在加速升级，一切从本土化出发｜浪潮对话</h3>
+<p>
+ | 来源: http://g.862156.com/blog/20260728-236.shtml
+</p>
+
+<h3>在史上最紧凑的上海车展，何小鹏搬出了他的钢铁车模｜浪潮对话</h3>
+<p>
+ | 来源: http://www.an-lin.cn/blog/20260728-248.shtml
+</p>
+
+<h3>从DeepSeek到“赤兔”：国产AI生态如何打破英伟达依赖？｜浪潮对话</h3>
+<p>
+ | 来源: http://www.tom-xin.com/blog/20260728-135.shtml
+</p>
+
+<h3>对话90后教授尤洋：放弃DeepSeek泼天流量，潞晨早就想好怎么活</h3>
+<p>
+ | 来源: http://hdhc.com.cn/blog/20260728-668.shtml
+</p>
+
+<h3>对话智元合伙人姚卯青：五年之内，人形机器人必然会走入家庭</h3>
+<p>
+ | 来源: http://www.cannice.com/blog/20260728-499.shtml
+</p>
+
+<h3>李东生两会建言：科技制造业融资突围与AI治理攻防战｜浪潮</h3>
+<p>
+ | 来源: http://www.xl-2.com/blog/20260728-751.shtml
+</p>
+
+<h3>荣耀“阿尔法战略”发布：斥资百亿美元的AI终端开放豪赌｜浪潮</h3>
+<p>
+ | 来源: http://wheat.org.cn/blog/20260728-145.shtml
+</p>
+
+<h3>对话OPPO张洲川：全球化十五年，如何突围苹果三星？｜浪潮</h3>
+<p>
+ | 来源: http://www.fiberw.com/blog/20260728-682.shtml
+</p>
+
+<h3>对话交个朋友朱萧木：没有罗老师我就不会创业</h3>
+<p>
+ | 来源: http://www.prodigy.net.cn/blog/20260728-867.shtml
+</p>
+
+<h3>梁洛施庆祝37岁生日，男友送99朵玫瑰示爱，她脸上的笑容好娇羞</h3>
+<p>
+ | 来源: http://www.qiuhaibo.com/blog/20260728-556.shtml
+</p>
+
+<h3>内娱全新男团“H&H BOYS”正式出道</h3>
+<p>
+ | 来源: http://www.nankang.com.cn/blog/20260728-521.shtml
+</p>
+
+<h3>星海V9发布会，吴镇宇介绍双侧电动滑门的重要性</h3>
+<p>
+ | 来源: http://www.lzfx.com.cn/blog/20260728-425.shtml
+</p>
+
+<h3>《演员请就位3》收官，杨子不负众望荣获“进步蜕变演员”大奖</h3>
+<p>
+ | 来源: http://hengaodebj.com/blog/20260728-767.shtml
+</p>
+
+<h3>【非常道X双汇】孟子义：清醒是最高级的情商</h3>
+<p>
+ | 来源: http://www.jxxindian.com/blog/20260728-221.shtml
+</p>
+
+<h3>张学友公司回应演唱会破音：呼吸道感染致声音难控制</h3>
+<p>
+ | 来源: http://yjmygs.com/blog/20260728-287.shtml
+</p>
+
+<h3>李连杰谈过往遇险经历：我曾经也很恐惧死亡</h3>
+<p>
+ | 来源: http://www.xn--m8tq2a53m.com/blog/20260728-272.shtml
+</p>
+
+<h3>惠英红卡点为宋佳庆生：愿你永远幸福平安</h3>
+<p>
+ | 来源: http://www.chinanewman.com/blog/20260728-573.shtml
+</p>
+
+<h3>警方确认宋再临无他杀嫌疑 遗体是在家中被发现</h3>
+<p>
+ | 来源: http://chinajinxian.com/blog/20260728-773.shtml
+</p>
+
+<h3>李玟墓地近况曝光 现场杂草丛生凌乱不堪</h3>
+<p>
+ | 来源: http://www.xn--m8tq2a53m.com/blog/20260728-159.shtml
+</p>
+
+<h3>《抓特务》：“猫鼠”游戏背后的时代画卷</h3>
+<p>
+ | 来源: http://www.tom-xin.com/blog/20260728-902.shtml
+</p>
+
+<h3>唐嫣戛纳电影节采访：汪小姐是我的人生角色之一</h3>
+<p>
+ | 来源: http://www.hidier.com/blog/20260728-882.shtml
+</p>
+
+<h3>一汽-大众 揽巡 X 凤凰网，奇幻梦旅共赏硬核之势</h3>
+<p>
+ | 来源: http://www.migun.net.cn/blog/20260728-224.shtml
+</p>
+
+<h3>第15届北京国际电影节</h3>
+<p>
+ | 来源: http://www.wmh.cn/blog/20260728-623.shtml
+</p>
+
+<h3>蒋欣第三次登上春晚舞台 透露过年的时候一家三口会一起玩抽奖拿红包</h3>
+<p>
+ | 来源: http://www.huaiheedu.com/blog/20260728-689.shtml
+</p>
+
+<h3>风行星海V9 | 升舱人生 越享星海</h3>
+<p>
+ | 来源: http://www.yowelt.com/blog/20260728-608.shtml
+</p>
+
+<h3>专题|第78届戛纳国际电影节</h3>
+<p>
+ | 来源: http://jx.yyltw.com/blog/20260728-923.shtml
+</p>
+
+<h3>“散眼子”赵露思</h3>
+<p>
+ | 来源: http://www.xl-2.com/blog/20260728-707.shtml
+</p>
+
+<h3>宋雨琦吊带造型皮肤白皙 粉嫩甜美宛若水蜜桃公主</h3>
+<p>
+ | 来源: http://sz.sawenow.com/blog/20260728-277.shtml
+</p>
+
+<h3>东野圭吾离世！因姐姐爱上文学，留下50亿遗产，两个姐姐成继承人</h3>
+<p>
+ | 来源: http://nisang.com/blog/20260728-108.shtml
+</p>
+
+<h3>息影22年，王祖贤"回来"了——但回来的只是她的脸</h3>
+<p>
+ | 来源: http://www.thuni-h.com/blog/20260728-260.shtml
+</p>
+
+<h3>赵雅芝景德镇浓妆拍摄，状态引热议</h3>
+<p>
+ | 来源: http://www.tjkehui.com/blog/20260728-391.shtml
+</p>
+
+<h3>52岁吴京马来西亚度假被偶遇！身材健硕状态好，对谢楠宠溺太好磕</h3>
+<p>
+ | 来源: http://wire-u.com/blog/20260728-747.shtml
+</p>
+
+<h3>扶不起的90花？集体惨败的一年……</h3>
+<p>
+ | 来源: http://www.scminghua.cn/blog/20260728-112.shtml
+</p>
+
+<h3>粉丝闹剧正在反噬偶像</h3>
+<p>
+ | 来源: http://www.zlbigdata.com/blog/20260728-597.shtml
+</p>
+
+<h3>捧红无数明星，作品流芳百世，琼瑶用最琼瑶的方式与时代告别</h3>
+<p>
+ | 来源: http://hengaodebj.com/blog/20260728-999.shtml
+</p>
+
+<h3>新剧狗血新电影扑街，新恋情曝光再陷争议，他的口碑还有救吗？</h3>
+<p>
+ | 来源: http://www.chuang-ao.cn/blog/20260728-617.shtml
+</p>
+
+<h3>动画电影《一人之下·绵山血战》首度官宣，原著作者米二亲自操刀书写国漫热血新篇</h3>
+<p>
+ | 来源: http://ldeia.com/blog/20260728-964.shtml
+</p>
+
+<h3>冰火两重天！《功夫女足》冲刺20亿，两部影片却接连撤档</h3>
+<p>
+ | 来源: http://www.nankang.com.cn/blog/20260728-147.shtml
+</p>
+
+<h3>胡彦斌献唱《蜘蛛侠：崭新之日》中文推广曲 用歌声诠释英雄本心</h3>
+<p>
+ | 来源: http://www.chinabo.org/blog/20260728-528.shtml
+</p>
+
+<h3>《汪汪队立大功大电影3》中国首映礼欢乐举行 首轮点映给孩子带来欢乐</h3>
+<p>
+ | 来源: http://www.huaiheedu.com/blog/20260728-880.shtml
+</p>
+
+<h3>全网爆火的“崩老头”，到底治愈了谁？</h3>
+<p>
+ | 来源: http://tjsatou.com/blog/20260728-506.shtml
+</p>
+
+<h3>凤凰公映礼</h3>
+<p>
+ | 来源: http://tjjsg.com/blog/20260728-165.shtml
+</p>
+
+<h3>《捕风追影》凤凰网公映礼 成龙梁家辉携全体主创亮相</h3>
+<p>
+ | 来源: http://www.chinajk.org/blog/20260728-783.shtml
+</p>
+
+<h3>《人生开门红》凤凰网公映礼 易小星携邓家佳常远修睿亮相</h3>
+<p>
+ | 来源: http://www.fulqunmy.com/blog/20260728-158.shtml
+</p>
+
+<h3>《好东西》主创集结，邵艺辉携手钟楚曦、章宇亮相凤凰网公映礼</h3>
+<p>
+ | 来源: http://www.kayin.com.cn/blog/20260728-269.shtml
+</p>
+
+<h3>2026腾讯视频动漫年度发布：“新”不再是惊喜，而是常态</h3>
+<p>
+ | 来源: http://www.bjtcpip.com/blog/20260728-379.shtml
+</p>
+
+<h3>新加坡演员邓伟德中国行畅谈演艺之路《小娘惹之翡翠山》收获中国观众认可</h3>
+<p>
+ | 来源: http://www.cm5g.com/blog/20260728-503.shtml
+</p>
+
+<h3>精品微短剧《守望荣光》大同开机：顶流双男主强强联袂，打造法治文保新标杆</h3>
+<p>
+ | 来源: http://www.chinanewman.cn/blog/20260728-250.shtml
+</p>
+
+<h3>《一饭封神2》百位厨师集结！谢霆锋张勇郑永麒Vicky助力开启“封神”对决！</h3>
+<p>
+ | 来源: http://www.dragon-bite.com/blog/20260728-557.shtml
+</p>
+
+<h3>《21天重养自己》暖心收官 以身心疗愈完成中年女性成长答卷</h3>
+<p>
+ | 来源: http://www.etalentlink.com/blog/20260728-980.shtml
+</p>
+
+<h3>张艺兴《斗战胜佛》试听会让非遗文化回响碰撞先锋律动，尽显M-POP魅力</h3>
+<p>
+ | 来源: http://www.etmval.com/blog/20260728-851.shtml
+</p>
+
+<h3>诗乐共生，岁月回响 ——作家方磊“日历5”诗歌摇滚乐在北京角楼图书馆上演</h3>
+<p>
+ | 来源: http://cloud.itxiong.com/blog/20260728-407.shtml
+</p>
+
+<h3>青年音乐人林子濠：扎根热爱，向内生长</h3>
+<p>
+ | 来源: http://www.jmvisa.com/blog/20260728-635.shtml
+</p>
+
+<h3>旅美华裔作曲家李昕艳《海之传奇》入选GFIC国际大管比赛指定曲目</h3>
+<p>
+ | 来源: http://www.baolongplastic.com/blog/20260728-627.shtml
+</p>
+
+<h3>仁俊&辰乐「室友」杭州站温情上演 TME live倾力打造乔迁派对之夜</h3>
+<p>
+ | 来源: http://ruinengkeji.com/blog/20260728-440.shtml
+</p>
+
+<h3>网易云音乐与DSP Media达成版权合作 厂牌新歌首发30天</h3>
+<p>
+ | 来源: http://www.wmh.cn/blog/20260728-756.shtml
+</p>
+
+<h3>电影引力波</h3>
+<p>
+ | 来源: http://jesdy.com/blog/20260728-682.shtml
+</p>
+
+<h3>解压甜剧《柳舟记》，打造不一样的“种田感”</h3>
+<p>
+ | 来源: http://www.etalentlink.com/blog/20260728-928.shtml
+</p>
+
+<h3>“谍战”变“谍偶”多角恋就够无语了，张颂文也带不起来“拖油瓶”…</h3>
+<p>
+ | 来源: http://www.candor-co.com/blog/20260728-964.shtml
+</p>
+
+<h3>这次他用《解密》让电影重现“梦境”</h3>
+<p>
+ | 来源: http://www.hfexcell.com/blog/20260728-913.shtml
+</p>
+
+<h3>湾区共声：酷狗音乐携手TVB以科技唤醒大湾区集体记忆</h3>
+<p>
+ | 来源: http://www.yhgsyy.com/blog/20260728-329.shtml
+</p>
+
+<h3>一汽-大众 揽巡 X 凤凰网，奇趣漫游共享直率之式</h3>
+<p>
+ | 来源: http://g.862156.com/blog/20260728-512.shtml
+</p>
+
+<h3>【非常道】崔健：“继续撒点野”</h3>
+<p>
+ | 来源: http://tjztzt.com/blog/20260728-330.shtml
+</p>
+
+<h3>一袭浅蓝宽松吊带长裙 周冬雨灵动温婉 侧颜氛围感清冷高级</h3>
+<p>
+ | 来源: http://wh.kkpark.cc/blog/20260728-849.shtml
+</p>
+
+<h3>高圆圆纯白抹胸裙优雅大气</h3>
+<p>
+ | 来源: http://oa.yszbwlw.com/blog/20260728-628.shtml
+</p>
+
+<h3>张靓颖张天爱张嘉佳现身薛之谦演唱会</h3>
+<p>
+ | 来源: http://shcost.cn/blog/20260728-116.shtml
+</p>
+
+<h3>李权哲就“高铁占座事件”发文道歉</h3>
+<p>
+ | 来源: http://www.carinway.com/blog/20260728-801.shtml
+</p>
+
+<h3>主持人李锐发文求助：家屋里进蛇了应该怎么办？</h3>
+<p>
+ | 来源: http://oa.yszbwlw.com/blog/20260728-208.shtml
+</p>
+
+<h3>韦唯直言婚后才知道前夫有家暴行为：我当年嫁给老外，完全就是上当</h3>
+<p>
+ | 来源: http://www.prodigy.net.cn/blog/20260728-323.shtml
+</p>
+
+<h3>快手独家直播TOP登陆少年「梦寐以求」演唱会，多机位直击青岛演唱会舞台时刻</h3>
+<p>
+ | 来源: http://www.hantec.com.cn/blog/20260728-198.shtml
+</p>
+
+<h3>网传王菲破坏谢霆锋张柏芝婚姻 前经纪人发文怒斥谣言</h3>
+<p>
+ | 来源: http://www.tjsatou.com/blog/20260728-592.shtml
+</p>
