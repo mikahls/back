@@ -1,0 +1,502 @@
+<h1> AI Builders Digest 今日热点快报</h1>
+<p><strong>2026年07月31日 19时17分48秒(UTC+8)</strong></p>
+<hr>
+<h3>Anthropic：Claude 协同办公功能即将登陆移动端与网页端</h3>
+<p>
+ | 来源: http://www.zlbigdata.com/blog/20260731-219.shtml
+</p>
+
+<h3>法国能源企业高管：欧洲需要与中国合作推动脱碳和绿色转型</h3>
+<p>
+ | 来源: http://www.dzlg.net/blog/20260731-485.shtml
+</p>
+
+<h3>特朗普称将取消对土耳其制裁</h3>
+<p>
+ | 来源: http://cloud.itxiong.com/blog/20260731-995.shtml
+</p>
+
+<h3>波罗的海干散货运价指数收高，升至近一个月高位</h3>
+<p>
+ | 来源: http://www.thuni-h.com/blog/20260731-769.shtml
+</p>
+
+<h3>特朗普：对北约在美对伊军事行动中表现感到“失望”</h3>
+<p>
+ | 来源: http://chinajinxian.com/blog/20260731-569.shtml
+</p>
+
+<h3>卡塔尔谴责卡方天然气运输船遭袭 称伊朗应承担责任</h3>
+<p>
+ | 来源: http://pudonghuwai.big-shanghai.com/blog/20260731-951.shtml
+</p>
+
+<h3>阿波罗Slok：美股七巨头以外公司利润率停滞对科技巨头估值构成风险</h3>
+<p>
+ | 来源: http://www.cqxingyi.com/blog/20260731-603.shtml
+</p>
+
+<h3>美国参议员沃伦向五角大楼施压，要求人工智能公司披露合同信息。</h3>
+<p>
+ | 来源: http://www.wzjh9999.com/blog/20260731-586.shtml
+</p>
+
+<h3>国际奥委会：2030年冬奥会将设置126个小项</h3>
+<p>
+ | 来源: http://www.huhangonline.com/blog/20260731-645.shtml
+</p>
+
+<h3>工业和信息化部进一步部署防汛救灾应急通信保障工作</h3>
+<p>
+ | 来源: http://www.petrol-coke.com/blog/20260731-725.shtml
+</p>
+
+<h3>受台风“巴威”影响 江苏将暂停线下教育教学活动</h3>
+<p>
+ | 来源: http://www.nhjco.cn/blog/20260731-438.shtml
+</p>
+
+<h3>奇瑞汽车：与广东瑞讯订立汽车销售框架协议</h3>
+<p>
+ | 来源: http://www.glmckj.cn/blog/20260731-978.shtml
+</p>
+
+<h3>亚马逊全球智能枢纽仓落地长三角，上海、宁波双仓正式启用</h3>
+<p>
+ | 来源: http://www.naiweitech.com/blog/20260731-538.shtml
+</p>
+
+<h3>美国6月纽约联储1年通胀预期3.67%，前值3.46%</h3>
+<p>
+ | 来源: http://www.candor-co.com/blog/20260731-404.shtml
+</p>
+
+<h3>国际奥委会暂时解除对俄罗斯奥委会的处罚</h3>
+<p>
+ | 来源: http://jesdy.com/blog/20260731-642.shtml
+</p>
+
+<h3>广西强降雨已致6人死亡11人失联</h3>
+<p>
+ | 来源: http://www.bjszxc.com/blog/20260731-430.shtml
+</p>
+
+<h3>华天科技：有玻璃基板封装研发布局 但不涉及基板业务</h3>
+<p>
+ | 来源: http://www.thuni-h.com/blog/20260731-266.shtml
+</p>
+
+<h3>马里军方在北部基达尔区打死200多名恐怖分子</h3>
+<p>
+ | 来源: http://www.dragon-bite.com/blog/20260731-814.shtml
+</p>
+
+<h3>英国央行提议放松资本规则 尽管多重风险升温</h3>
+<p>
+ | 来源: http://m.cqtmzl.com/blog/20260731-264.shtml
+</p>
+
+<h3>王伟中包钢会见深圳证券交易所理事长沙雁</h3>
+<p>
+ | 来源: https://gitcode.com/ylscode/gitcode_knowledge/tree/main/CSDN%E5%8D%9A%E6%96%87%E5%A4%87%E4%BB%BD
+</p>
+
+<h3>费城半导体指数日内跌7% 英特尔跌超10%</h3>
+<p>
+ | 来源: http://linoon.com/blog/20260731-757.shtml
+</p>
+
+<h3>日媒：中国金融科技专利数量和质量均居全球首位</h3>
+<p>
+ | 来源: http://sz.sawenow.com/blog/20260731-870.shtml
+</p>
+
+<h3>珠江防总、珠江委将应急响应提升至Ⅰ级</h3>
+<p>
+ | 来源: http://m.cqtmzl.com/blog/20260731-904.shtml
+</p>
+
+<h3>法国再次下调今年经济增长预期</h3>
+<p>
+ | 来源: http://www.bethelfood.cn/blog/20260731-916.shtml
+</p>
+
+<h3>葡萄牙知名企业期待与中交集团持续深化合作</h3>
+<p>
+ | 来源: http://20629as423.51mypc.cn/blog/20260731-210.shtml
+</p>
+
+<h3>美股芯片股持续走低，闪迪跌超11%</h3>
+<p>
+ | 来源: http://www.fastchina.net/blog/20260731-177.shtml
+</p>
+
+<h3>亚太政商领袖敦促加强合作以维持可持续增长</h3>
+<p>
+ | 来源: http://cloud.itxiong.com/blog/20260731-232.shtml
+</p>
+
+<h3>上海市消保委：今年上半年共享租赁和AI相关投诉频发</h3>
+<p>
+ | 来源: http://www.hantec.com.cn/blog/20260731-349.shtml
+</p>
+
+<h3>美、布两油日内均涨超2%</h3>
+<p>
+ | 来源: http://crm.yszbwlw.com/blog/20260731-709.shtml
+</p>
+
+<h3>海新能科与郑州公用集团交流 探讨深化合作路径</h3>
+<p>
+ | 来源: http://yhgsyy.com/blog/20260731-676.shtml
+</p>
+
+<h3>美股光通信板块盘初集体下跌 Coherent跌近6%</h3>
+<p>
+ | 来源: http://wap.tjmws.com/blog/20260731-780.shtml
+</p>
+
+<h3>子公司PCB产品价格上调，木林森回应：原材料涨价所致，业务整体占比不大</h3>
+<p>
+ | 来源: http://tjztzt.com/blog/20260731-451.shtml
+</p>
+
+<h3>证监会对安某编造传播涉中公教育虚假信息立案调查</h3>
+<p>
+ | 来源: http://h.ythqkj.com/blog/20260731-448.shtml
+</p>
+
+<h3>绿城中国：6月合同销售金额约人民币114亿元</h3>
+<p>
+ | 来源: http://wheat.org.cn/blog/20260731-121.shtml
+</p>
+
+<h3>浙江启动水旱灾害防御（防台）Ⅳ级应急响应</h3>
+<p>
+ | 来源: http://htidc.com.cn/blog/20260731-467.shtml
+</p>
+
+<h3>星尘智能完成股改</h3>
+<p>
+ | 来源: http://weihuakeji.com/blog/20260731-691.shtml
+</p>
+
+<h3>台风在广西停留26小时 造成降雨时间长、雨量大、致灾性强</h3>
+<p>
+ | 来源: http://www.fulfil.com.cn/blog/20260731-271.shtml
+</p>
+
+<h3>国防部新闻发言人陈曦就中国海军组织潜射战略导弹试射答记者问</h3>
+<p>
+ | 来源: http://www.carinway.com/blog/20260731-689.shtml
+</p>
+
+<h3>广西强降雨持续 已投入各类抢险救援人员8342人</h3>
+<p>
+ | 来源: http://www.jsxdaf.com/blog/20260731-274.shtml
+</p>
+
+<h3>湖北：加快保险理赔应对强对流天气灾害</h3>
+<p>
+ | 来源: http://www.petrol-coke.com/blog/20260731-182.shtml
+</p>
+
+<h3>新疆上半年出入境人员突破240万人次</h3>
+<p>
+ | 来源: http://www.skygp.com/blog/20260731-233.shtml
+</p>
+
+<h3>*ST美芝：选举何申健为董事长，提名补选徐嘉炜为董事</h3>
+<p>
+ | 来源: http://hengaodebj.com/blog/20260731-485.shtml
+</p>
+
+<h3>广西强降雨已致6人死亡11人失联 已紧急转移安置13万人</h3>
+<p>
+ | 来源: http://h.ythqkj.com/blog/20260731-388.shtml
+</p>
+
+<h3>ST惠伦：收到广东证监局行政监管措施决定书和深圳证券交易所监管函</h3>
+<p>
+ | 来源: http://wap.youpin5g.com/blog/20260731-313.shtml
+</p>
+
+<h3>科陆电子：第十届董事会11名董事选举李葛丰为董事长</h3>
+<p>
+ | 来源: http://www.lottiesilicone.com/blog/20260731-296.shtml
+</p>
+
+<h3>行云科技：预计上半年净利润同比增长432.77%-699.15%</h3>
+<p>
+ | 来源: http://www.aktmembrane.com/blog/20260731-744.shtml
+</p>
+
+<h3>美国5月贸易逆差为776亿美元，预期逆差785亿美元</h3>
+<p>
+ | 来源: http://www.sypdsl.com/blog/20260731-211.shtml
+</p>
+
+<h3>市场监管总局多举措整治“内卷式”竞争</h3>
+<p>
+ | 来源: http://htidc.com.cn/blog/20260731-315.shtml
+</p>
+
+<h3>市场监管总局将开展公平竞争审查抽查</h3>
+<p>
+ | 来源: http://www.chinanewman.com/blog/20260731-488.shtml
+</p>
+
+<h3>浙江省防御应对9号台风“巴威”工作部署会议召开</h3>
+<p>
+ | 来源: http://www.jp-tech.cn/blog/20260731-546.shtml
+</p>
+
+<h3>*ST湘邮：公开挂牌转让福信富通100万股股份已完成，成交价2323.08万元</h3>
+<p>
+ | 来源: http://www.qiangyang.com.cn/blog/20260731-821.shtml
+</p>
+
+<h3>浪潮信息：预计2026年上半年净利润26亿元-31亿元，同比增长226%-288%</h3>
+<p>
+ | 来源: http://www.yowelt.com/blog/20260731-211.shtml
+</p>
+
+<h3>阿斯麦美股盘前跌超4%</h3>
+<p>
+ | 来源: http://weihuakeji.com/blog/20260731-825.shtml
+</p>
+
+<h3>四川色湾藏香活大猪首次进入澳门市场</h3>
+<p>
+ | 来源: http://www.sarchee.com/blog/20260731-960.shtml
+</p>
+
+<h3>中华慈善总会紧急筹集5000万元款物驰援受灾地区</h3>
+<p>
+ | 来源: http://zyl100.com/blog/20260731-296.shtml
+</p>
+
+<h3>礼来美股盘前涨超2%</h3>
+<p>
+ | 来源: http://jesdy.com/blog/20260731-456.shtml
+</p>
+
+<h3>美国上周ADP就业人数增加2.1万人，前值3.075万人</h3>
+<p>
+ | 来源: http://www.hkcxwl.com/blog/20260731-145.shtml
+</p>
+
+<h3>三七互娱：拟出资不超过2000万元参设聚鸿合晟基金</h3>
+<p>
+ | 来源: https://blog.csdn.net/seoppg/article/details/148493454
+</p>
+
+<h3>高善文去世 享年55岁</h3>
+<p>
+ | 来源: http://www.qiyitech.cn/blog/20260731-974.shtml
+</p>
+
+<h3>ST龙大：龙大转债到期无法兑付本息，未转股占比73.35%</h3>
+<p>
+ | 来源: http://www.anxinjiazs.com/blog/20260731-910.shtml
+</p>
+
+<h3>渤海租赁：预计上半年净利润30亿元–36亿元</h3>
+<p>
+ | 来源: http://www.njypj.cn/blog/20260731-405.shtml
+</p>
+
+<h3>欧菲光：预计2026年上半年净亏损3.6亿元-4.6亿元</h3>
+<p>
+ | 来源: http://www.ahycfj.com/blog/20260731-650.shtml
+</p>
+
+<h3>诺华回应国家医保局称有药企在集采中伪造专家建议函：所指企业并非诺华</h3>
+<p>
+ | 来源: http://www.fulqunmy.com/blog/20260731-544.shtml
+</p>
+
+<h3>神工股份：拟收购福建精工20.0002%股权</h3>
+<p>
+ | 来源: http://zyl100.com/blog/20260731-320.shtml
+</p>
+
+<h3>神工股份：股东拟转让425.76万股 占公司总股本2.50%</h3>
+<p>
+ | 来源: http://www.jinmuxin.com/blog/20260731-249.shtml
+</p>
+
+<h3>神工股份：拟投资11.3亿元建设封装及微纳光电等项目</h3>
+<p>
+ | 来源: http://www.fiberer.com/blog/20260731-298.shtml
+</p>
+
+<h3>好利科技：股东孙剑波拟减持不超1%股份</h3>
+<p>
+ | 来源: http://www.sypdsl.com/blog/20260731-476.shtml
+</p>
+
+<h3>以军称在加沙打死两名哈马斯军事指挥官</h3>
+<p>
+ | 来源: http://tms.862156.net/blog/20260731-996.shtml
+</p>
+
+<h3>ST华谊：王忠军、王忠磊合计持股比例降至6.85%</h3>
+<p>
+ | 来源: http://www.xn--m8tq2a53m.com/blog/20260731-810.shtml
+</p>
+
+<h3>上海莱士：拟2.5亿元至5亿元回购股份 将全部用于注销并减少注册资本</h3>
+<p>
+ | 来源: http://www.dqflbz.com/blog/20260731-269.shtml
+</p>
+
+<h3>中恒集团：拟1亿元至2亿元回购股份用于注销</h3>
+<p>
+ | 来源: http://www.yhgsyy.com/blog/20260731-797.shtml
+</p>
+
+<h3>自然资源部：各地要做好防汛关键期地质灾害防范应对工作</h3>
+<p>
+ | 来源: http://oa.yszbwlw.com/blog/20260731-691.shtml
+</p>
+
+<h3>7月7日 周二《新闻联播》要闻12条</h3>
+<p>
+ | 来源: http://www.bothcapital.com/blog/20260731-138.shtml
+</p>
+
+<h3>金新农：6月生猪销量10.15万头，同比-9.56%</h3>
+<p>
+ | 来源: http://www.yx-gas.com/blog/20260731-196.shtml
+</p>
+
+<h3>坤彩科技：预计2026年上半年净利润同比增长254.17%到304.76%</h3>
+<p>
+ | 来源: http://www.chinafmyj.com/blog/20260731-963.shtml
+</p>
+
+<h3>石药集团：SYH2070注射液Ⅱ期临床试验启动，计划入组240例</h3>
+<p>
+ | 来源: http://www.airfast.com/blog/20260731-811.shtml
+</p>
+
+<h3>江淮汽车：首次回购86万股，支付金额2002.44万元</h3>
+<p>
+ | 来源: http://www.hengaodebj.com/blog/20260731-593.shtml
+</p>
+
+<h3>迈威生物：9MW5211注射液获NMPA批准用于1型糖尿病临床试验</h3>
+<p>
+ | 来源: http://www.chinafmyj.com/blog/20260731-439.shtml
+</p>
+
+<h3>卧龙电驱：共同投资的私募基金完成扩募备案，认缴规模变更为50亿元</h3>
+<p>
+ | 来源: http://www.carinway.com/blog/20260731-666.shtml
+</p>
+
+<h3>摩尔多瓦总统任命临时总理</h3>
+<p>
+ | 来源: http://www.tjztzt.com/blog/20260731-315.shtml
+</p>
+
+<h3>岭南控股：拟收购广电城服85%股份 股票复牌</h3>
+<p>
+ | 来源: http://www.chinajk.org/blog/20260731-440.shtml
+</p>
+
+<h3>中国人民银行、香港金融管理局、香港证券及期货事务监察委员会在港建设交易平台</h3>
+<p>
+ | 来源: http://www.jingtouwang.com.cn/blog/20260731-127.shtml
+</p>
+
+<h3>妙可蓝多：2026年半年度净利润1.51亿元，同比增长13.74%</h3>
+<p>
+ | 来源: http://zhijiandaxi.com/blog/20260731-261.shtml
+</p>
+
+<h3>山东路桥：联合体中标潍坊至沂源高速施工二标段项目 中标价42.06亿元</h3>
+<p>
+ | 来源: http://www.dqflbz.com/blog/20260731-974.shtml
+</p>
+
+<h3>理工导航：控股股东、实际控制人拟协议转让5%股份，价格65.21元/股</h3>
+<p>
+ | 来源: http://zhijiandaxi.com/blog/20260731-734.shtml
+</p>
+
+<h3>Raymond James首次覆盖SpaceX，给予“强烈买入”评级，目标价800美元</h3>
+<p>
+ | 来源: http://api.gxzyzwlw.com/blog/20260731-851.shtml
+</p>
+
+<h3>凯美特气：股东财信资产等减持计划实施完毕，持股降至5%以下</h3>
+<p>
+ | 来源: http://www.anxinjiazs.com/blog/20260731-496.shtml
+</p>
+
+<h3>安凯微：预计2026年半年度净利润3800万元-4300万元 同比扭亏为盈</h3>
+<p>
+ | 来源: http://www.dragon-bite.com/blog/20260731-283.shtml
+</p>
+
+<h3>复旦微电：预计上半年净利润同比增长313%-416%</h3>
+<p>
+ | 来源: http://www.jsxxwy.com/blog/20260731-825.shtml
+</p>
+
+<h3>国内首个400平卷轴柔性钙钛矿太阳能帆板启动研制 支撑太空E级算力星座建设</h3>
+<p>
+ | 来源: http://pr.suerda.com/blog/20260731-955.shtml
+</p>
+
+<h3>智谱基石解禁日获近七成基石投资者表态长期持有</h3>
+<p>
+ | 来源: http://weihuakeji.com/blog/20260731-519.shtml
+</p>
+
+<h3>宜宾纸业：预计2026年半年度由盈转亏，净利润亏损4100万元-6150万元</h3>
+<p>
+ | 来源: http://www.itxiong.com/blog/20260731-342.shtml
+</p>
+
+<h3>联科科技：控股股东拟向实控人协议转让18.834%股份</h3>
+<p>
+ | 来源: http://www.zhongtianjianshe.net/blog/20260731-719.shtml
+</p>
+
+<h3>印度与印尼签订防务合作协议</h3>
+<p>
+ | 来源: http://www.yongxishipin.com/blog/20260731-578.shtml
+</p>
+
+<h3>荷兰国防大臣：已无力继续向乌提供直接军事援助</h3>
+<p>
+ | 来源: http://www.migun.net.cn/blog/20260731-493.shtml
+</p>
+
+<h3>如瑞迪博士美股盘前涨超10%</h3>
+<p>
+ | 来源: http://www.jsxdaf.com/blog/20260731-855.shtml
+</p>
+
+<h3>*ST国中：预计2026年半年度实现扭亏为盈，净利润600万-800万元</h3>
+<p>
+ | 来源: http://www.chuang-ao.cn/blog/20260731-650.shtml
+</p>
+
+<h3>*ST国中：多名高管拟增持合计340万元</h3>
+<p>
+ | 来源: http://www.tjztzt.com/blog/20260731-248.shtml
+</p>
+
+<h3>工业富联：郑弘孟获9票同意当选董事长，聘任多名高管</h3>
+<p>
+ | 来源: http://www.lzfx.com.cn/blog/20260731-394.shtml
+</p>
+
+<h3>中国人民银行行长潘功胜出席香港货币与固定收益峰会并致辞</h3>
+<p>
+ | 来源: http://www.hantec.com.cn/blog/20260731-912.shtml
+</p>
