@@ -1,0 +1,502 @@
+<h1> AI Builders Digest 今日热点快报</h1>
+<p><strong>2026年08月05日 13时29分47秒(UTC+8)</strong></p>
+<hr>
+<h3>荣耀X80 Pro Max手机首销“战绩”曝光，销量超4.5万台</h3>
+<p>
+ | 来源: http://www.yx-gas.com/blog/20260804-324.shtml
+</p>
+
+<h3>Meta内部项目曝光：数百合同工装成未成年人，诱导对手AI聊敏感话题</h3>
+<p>
+ | 来源: http://www.intransing.com/blog/20260804-582.shtml
+</p>
+
+<h3>一加15系列手机迎来第二轮调价：累计已上涨1100元，现价5099~6499元</h3>
+<p>
+ | 来源: http://www.hdhc.com.cn/blog/20260804-793.shtml
+</p>
+
+<h3>iPhone 18 Pro Max真机首次泄露：横向大矩阵镜组+全新深空灰配色</h3>
+<p>
+ | 来源: http://www.xppuab.cn/blog/20260804-422.shtml
+</p>
+
+<h3>首发2nm骁龙8E6 Pro！小米18系列预计9月24日发布</h3>
+<p>
+ | 来源: http://www.cnrunli.com/blog/20260804-594.shtml
+</p>
+
+<h3>2026年骁龙峰会定档9月22-24日：骁龙8 Elite Gen6系列将登场！高通首款2nm</h3>
+<p>
+ | 来源: http://www.nhjco.cn/blog/20260804-865.shtml
+</p>
+
+<h3>提前两分钟避险！委内瑞拉发生强震安卓手机发出预警 iPhone却无提醒</h3>
+<p>
+ | 来源: http://www.2738128.com/blog/20260804-731.shtml
+</p>
+
+<h3>消息称iQOO Ultra系列手机“大概率”暂停一代</h3>
+<p>
+ | 来源: http://www.petrol-coke.com/blog/20260804-750.shtml
+</p>
+
+<h3>老外实测特朗普T1手机：软硬件均有明显短板</h3>
+<p>
+ | 来源: http://www.glmckj.cn/blog/20260804-229.shtml
+</p>
+
+<h3>iPhone 18只给9GB内存？内存涨疯，苹果开始求特朗普买长鑫存储</h3>
+<p>
+ | 来源: http://www.lzfx.com.cn/blog/20260804-302.shtml
+</p>
+
+<h3>荣耀X80 Pro Max手机首销日“战绩”出炉，获2026年安卓新品销量第一</h3>
+<p>
+ | 来源: http://www.anxinjiazs.com/blog/20260804-604.shtml
+</p>
+
+<h3>7999元X Fold6杀疯！vivo黄韬：对销量有信心 比上代至少30%增长</h3>
+<p>
+ | 来源: http://sz.sawenow.com/blog/20260804-175.shtml
+</p>
+
+<h3>三星确认Galaxy A27手机不支持DeX：此前官网信息系复制粘贴错误</h3>
+<p>
+ | 来源: http://cangyishu.com/blog/20260804-974.shtml
+</p>
+
+<h3>REDMI K100 Pro“流萤追光”配色公布：夜光材料打造，后盖可作为“光绘板”</h3>
+<p>
+ | 来源: http://www.sypdsl.com/blog/20260804-758.shtml
+</p>
+
+<h3>Q2全球手机营收逆势增长7% 安卓阵营因存储涨价承压</h3>
+<p>
+ | 来源: http://www.tjztzt.com/blog/20260804-946.shtml
+</p>
+
+<h3>罕见召回退休高管，苹果准CEO特努斯开始组建自己班底</h3>
+<p>
+ | 来源: http://m.cqtmzl.com/blog/20260804-691.shtml
+</p>
+
+<h3>芯片业务利润上涨超200倍，三星第二季度净利润同比增长1344%</h3>
+<p>
+ | 来源: http://www.kayin.com.cn/blog/20260804-649.shtml
+</p>
+
+<h3>SpaceX再获16亿美元订单，将执行美国太空军18次发射任务</h3>
+<p>
+ | 来源: http://www.huazhong-ex.com/blog/20260804-950.shtml
+</p>
+
+<h3>揭秘AI入侵Hugging Face全过程：4天半执行17600次操作</h3>
+<p>
+ | 来源: http://www.chinafmyj.com/blog/20260804-684.shtml
+</p>
+
+<h3>OpenAI总裁回应苹果诉讼：我们创新能力很强，不需要其他公司机密</h3>
+<p>
+ | 来源: https://caidaome.com/
+</p>
+
+<h3>高通拿下宝马长期芯片大单，合作延续至下一个十年</h3>
+<p>
+ | 来源: http://www.hzmhong.com/blog/20260804-298.shtml
+</p>
+
+<h3>高通宣布9月1日起上调手机芯片价格，涨幅或达两位数</h3>
+<p>
+ | 来源: http://scmj.scminghua.cn/blog/20260804-881.shtml
+</p>
+
+<h3>微软第四财季净利润同比增长31%，Azure年收入首超1000亿美元</h3>
+<p>
+ | 来源: http://www.yaheyx.com/blog/20260804-951.shtml
+</p>
+
+<h3>Meta第二季度净利润下滑14%，营收展望不及预期股价大跌10%</h3>
+<p>
+ | 来源: http://www.huhangonline.com/blog/20260804-943.shtml
+</p>
+
+<h3>专注Gemini 谷歌解散AI系统AlphaFold团队：曾获诺贝尔奖</h3>
+<p>
+ | 来源: http://www.bugtxt.com/m/20260711-866.shtml
+</p>
+
+<h3>抢伙伴业务、倡导封闭AI生态，硅谷掀起反Anthropic风潮</h3>
+<p>
+ | 来源: http://www.zzzzzzz.cn/blog/20260804-312.shtml
+</p>
+
+<h3>扎克伯格暗批OpenAI和Anthropic：控制AI造成权力集中 开放才是正解</h3>
+<p>
+ | 来源: http://www.rzjupian.com/blog/20260804-486.shtml
+</p>
+
+<h3>上千名员工呼吁美国政府控制AI发展 OpenAI CEO奥特曼表态</h3>
+<p>
+ | 来源: http://www.zongmeng123.com/blog/20260804-532.shtml
+</p>
+
+<h3>OpenAI模型失控新的受害者曝光 这家公司客户也被入侵了</h3>
+<p>
+ | 来源: http://www.cqtmzl.com/blog/20260804-299.shtml
+</p>
+
+<h3>美国扩大科技封锁，这次瞄准中国机器人</h3>
+<p>
+ | 来源: http://hengaodebj.com/blog/20260804-412.shtml
+</p>
+
+<h3>苹果大举进军智能家居：将发布家庭中枢等多款新品，主打Siri AI</h3>
+<p>
+ | 来源: http://www.jinmuxin.com/blog/20260804-283.shtml
+</p>
+
+<h3>宇树科技高管：今年出货量至少提高一倍 或在海外组装机器人</h3>
+<p>
+ | 来源: http://cangyishu.com/blog/20260804-471.shtml
+</p>
+
+<h3>泰国零部件巨头：与中国电动车企合作是行业唯一出路，日本公司陷入被动</h3>
+<p>
+ | 来源: http://www.862156.net/blog/20260804-229.shtml
+</p>
+
+<h3>微软AI负责人谈OpenAI“失控”事件：AI攻击崛起的警告 预防很重要</h3>
+<p>
+ | 来源: http://www.gywenfa.com/blog/20260804-106.shtml
+</p>
+
+<h3>SpaceX市值蒸发超1.2万亿美元，已经跌掉了一个特斯拉</h3>
+<p>
+ | 来源: http://www.zlbigdata.com/blog/20260804-926.shtml
+</p>
+
+<h3>OpenAI模型失控引发关注 奥特曼、黄仁勋将赴华盛顿会见美参议员</h3>
+<p>
+ | 来源: http://www.zlbigdata.com/blog/20260804-696.shtml
+</p>
+
+<h3>OpenAI奥特曼自曝沉迷短视频：周末一刷就是3小时，要靠删App戒断</h3>
+<p>
+ | 来源: http://www.anxinjiazs.com/blog/20260804-415.shtml
+</p>
+
+<h3>苹果市值反超英伟达，重回全球第一</h3>
+<p>
+ | 来源: http://www.qiyitech.cn/blog/20260804-459.shtml
+</p>
+
+<h3>英伟达投资OpenAI前首席科学家AI实验室 提供GPU取代谷歌TPU</h3>
+<p>
+ | 来源: http://xycyzl.com/blog/20260804-551.shtml
+</p>
+
+<h3>AI会带来4天工作制？奥特曼：生产力越高人越忙</h3>
+<p>
+ | 来源: http://www.hkcxwl.com/blog/20260804-243.shtml
+</p>
+
+<h3>AI取代员工预期落空？美国大企业纷纷重新开启招聘</h3>
+<p>
+ | 来源: http://www.jiamaofood.com/blog/20260804-555.shtml
+</p>
+
+<h3>苹果多项核心生态服务突发宕机</h3>
+<p>
+ | 来源: http://glparis.cn/blog/20260804-637.shtml
+</p>
+
+<h3>美媒：“超级英雄”光环散去，纳德拉AI豪赌为何反成微软“绞索”？</h3>
+<p>
+ | 来源: http://boclight.com/blog/20260804-633.shtml
+</p>
+
+<h3>英媒：65%白领怀念没有AI的职场，三分之一担忧创造力受影响</h3>
+<p>
+ | 来源: http://www.etmval.com/blog/20260804-272.shtml
+</p>
+
+<h3>美媒：OpenAI游说美国限制中国开源模型，黄仁勋马斯克公开反对</h3>
+<p>
+ | 来源: http://www.cqtmzl.com/blog/20260804-767.shtml
+</p>
+
+<h3>遭失控模型前所未有入侵 这家公司要求OpenAI提供1亿美元算力</h3>
+<p>
+ | 来源: http://www.huhangonline.com/blog/20260804-924.shtml
+</p>
+
+<h3>美媒：苹果CEO库克游说特朗普使用中国芯片，遭美光强烈反对</h3>
+<p>
+ | 来源: http://chinajinxian.com/blog/20260804-829.shtml
+</p>
+
+<h3>对标亚马逊 TikTok电商会员项目曝光：免费配送、商品打折</h3>
+<p>
+ | 来源: http://www.dzlg.net/blog/20260804-388.shtml
+</p>
+
+<h3>OpenAI模型失控始末：智能体早已出现异常，逃逸一周未被察觉</h3>
+<p>
+ | 来源: http://www.qzj99.com/blog/20260804-357.shtml
+</p>
+
+<h3>美媒关注中国电动车露营热：酒店失宠，高科技SUV变身车轮上的卧室</h3>
+<p>
+ | 来源: http://xycyzl.com/blog/20260804-673.shtml
+</p>
+
+<h3>谷歌旗舰大模型难产背后：军方合作引员工不满，内部感叹“已落后”</h3>
+<p>
+ | 来源: http://yf-syc.com/blog/20260804-976.shtml
+</p>
+
+<h3>OpenAI模型失控引白宫关注，国会议员提出AI紧急关停法案</h3>
+<p>
+ | 来源: http://www.xl-2.com/blog/20260804-158.shtml
+</p>
+
+<h3>因相信ChatGPT拒绝就医，美国男子险丧命后起诉OpenAI</h3>
+<p>
+ | 来源: http://www.chinajk.org/blog/20260804-321.shtml
+</p>
+
+<h3>TikTok测试付费短剧App：周订阅20美元，押注14亿美元新市场</h3>
+<p>
+ | 来源: http://g.862156.com/blog/20260804-353.shtml
+</p>
+
+<h3>英特尔交出近15年最强增长成绩单，数据中心业务收入大增59%</h3>
+<p>
+ | 来源: http://m.cqtmzl.com/blog/20260804-639.shtml
+</p>
+
+<h3>中美AI性能差距缩至仅6% 彭博：美国技术领先可持续性存疑</h3>
+<p>
+ | 来源: http://www.aktmembrane.com/blog/20260804-269.shtml
+</p>
+
+<h3>美国培养、中国创业，英媒：全球AI人才流向正在改变</h3>
+<p>
+ | 来源: http://www.sigehui.com/blog/20260804-149.shtml
+</p>
+
+<h3>OpenAI测试AI攻入外部网站，真正的问题出在哪？</h3>
+<p>
+ | 来源: http://www.yowelt.com/blog/20260804-377.shtml
+</p>
+
+<h3>财报电话会马斯克回应两大焦点：感谢美光保供，却避答SpaceX合并</h3>
+<p>
+ | 来源: http://www.abundant-gold.com/blog/20260804-315.shtml
+</p>
+
+<h3>OpenAI总裁首次评价Kimi K3，还提到了中美模型差距</h3>
+<p>
+ | 来源: http://www.ruinengkeji.com/blog/20260804-611.shtml
+</p>
+
+<h3>特斯拉第二季度净利润下滑5% 自由现金流转负、股价下跌3%</h3>
+<p>
+ | 来源: http://chinabo.org/blog/20260804-549.shtml
+</p>
+
+<h3>谷歌与出版商关系生变：搜索流量下滑引发矛盾 AI或被“断供”</h3>
+<p>
+ | 来源: http://www.qiangyang.com.cn/blog/20260804-463.shtml
+</p>
+
+<h3>AI误删账号、人工客服缺位：Meta用户陷入“解封死循环”</h3>
+<p>
+ | 来源: http://www.skygp.com/blog/20260804-182.shtml
+</p>
+
+<h3>马斯克旗下脑机接口公司Neuralink估值增长四倍，达420亿美元</h3>
+<p>
+ | 来源: http://www.fastchina.net/blog/20260804-671.shtml
+</p>
+
+<h3>为应对与中国竞争押注AI，美国科研资助规则迎重大调整</h3>
+<p>
+ | 来源: http://www.xgmpumps.com/blog/20260804-716.shtml
+</p>
+
+<h3>OpenAI证实模型测试出现失控 引发史无前例入侵</h3>
+<p>
+ | 来源: http://pr.suerda.com/blog/20260804-791.shtml
+</p>
+
+<h3>社交媒体带货博主注意了：AI已开始抢走副业生意</h3>
+<p>
+ | 来源: http://www.yongxishipin.com/blog/20260804-262.shtml
+</p>
+
+<h3>世界模型开发商极佳视界最快今年上市，IPO前估值30亿美元</h3>
+<p>
+ | 来源: http://www.rzjupian.com/blog/20260804-539.shtml
+</p>
+
+<h3>Kimi崛起触发监管升温，美国酝酿封堵中国模型</h3>
+<p>
+ | 来源: http://www.yowelt.com/blog/20260804-560.shtml
+</p>
+
+<h3>自动驾驶出租车用上太空互联网 特斯拉宣布Cybercab集成星链</h3>
+<p>
+ | 来源: http://www.xinghualou.net.cn/blog/20260804-425.shtml
+</p>
+
+<h3>美媒剖析中国AI崛起：美国“牢不可破”的优势被打破了</h3>
+<p>
+ | 来源: http://www.shunlijunjidian.com/blog/20260804-509.shtml
+</p>
+
+<h3>消息称智谱建成大型AI数据中心：全部采用国产芯片</h3>
+<p>
+ | 来源: http://www.airfast.com/blog/20260804-333.shtml
+</p>
+
+<h3>外媒：Kimi K3震动全球，冲击美巨头估值，谁是赢家谁是输家？</h3>
+<p>
+ | 来源: http://crm.yszbwlw.com/blog/20260804-838.shtml
+</p>
+
+<h3>台积电CFO回应马斯克、英特尔竞争：不会给对手任何机会</h3>
+<p>
+ | 来源: http://www.nankang.com.cn/blog/20260804-283.shtml
+</p>
+
+<h3>苹果返校季活动大缩水 古尔曼：受内存短缺影响 和取消没啥两样了</h3>
+<p>
+ | 来源: http://crm.yszbwlw.com/blog/20260804-456.shtml
+</p>
+
+<h3>传奇设计师艾维联手OpenAI，苹果为何没有起诉他？</h3>
+<p>
+ | 来源: http://www.bjszxc.com/blog/20260804-864.shtml
+</p>
+
+<h3>黄仁勋穿过的皮衣拍出近百万美元天价，远超预期</h3>
+<p>
+ | 来源: http://jsxxwy.com/blog/20260804-545.shtml
+</p>
+
+<h3>美媒：特朗普政府加强AI模型发布管控，科技巨头话语权遭削弱</h3>
+<p>
+ | 来源: http://www.tjztzt.com/blog/20260804-552.shtml
+</p>
+
+<h3>中国K3模型为何引发硅谷震惊？美媒揭秘三大原因</h3>
+<p>
+ | 来源: http://www.wheat.org.cn/blog/20260804-201.shtml
+</p>
+
+<h3>遭AI针对？美法官驳回26名Meta员工阻止裁员请求</h3>
+<p>
+ | 来源: http://www.bjszxc.com/blog/20260804-908.shtml
+</p>
+
+<h3>跨境电商希音IPO获港交所上市委员会批准，将启动路演</h3>
+<p>
+ | 来源: http://www.aiteou.com/blog/20260804-663.shtml
+</p>
+
+<h3>印度本土芯片梦受挫：塔塔首座晶圆厂只能用90纳米老旧工艺</h3>
+<p>
+ | 来源: http://www.jingtouwang.com.cn/blog/20260804-260.shtml
+</p>
+
+<h3>美媒：中国K3大模型震惊AI界，美巨头高价收费模式还能撑多久？</h3>
+<p>
+ | 来源: http://tgtg.yanmochina.com/blog/20260804-442.shtml
+</p>
+
+<h3>SpaceX造富让对手眼红，蓝色起源推新激励计划但含罕见竞业限制</h3>
+<p>
+ | 来源: http://mktiyu.com/blog/20260804-661.shtml
+</p>
+
+<h3>编程能力不达标，谷歌推迟发布旗舰大模型Gemini 3.5 Pro</h3>
+<p>
+ | 来源: http://www.dqflbz.com/blog/20260804-342.shtml
+</p>
+
+<h3>英伟达的芯片自己也不够用 吴新宙：黄仁勋会介入调解内部争夺</h3>
+<p>
+ | 来源: http://www.chuang-ao.cn/blog/20260804-202.shtml
+</p>
+
+<h3>AI公司罕见起诉用户，马斯克xAI控告Grok使用者制作儿童不雅内容</h3>
+<p>
+ | 来源: http://www.ndqnk.cn/blog/20260804-373.shtml
+</p>
+
+<h3>SpaceX股价高位下跌40%，市值已缩水超1万亿美元</h3>
+<p>
+ | 来源: http://www.yhgsyy.com/blog/20260804-444.shtml
+</p>
+
+<h3>OpenAI前女CTO创业发布首款AI模型：借鉴中国技术 主打成本和性能平衡</h3>
+<p>
+ | 来源: http://www.twoway.com.cn/blog/20260804-224.shtml
+</p>
+
+<h3>匈牙利前外长入职比亚迪，负责对外关系与新业务拓展</h3>
+<p>
+ | 来源: http://thuni-h.com/blog/20260804-956.shtml
+</p>
+
+<h3>比亚迪副总裁李柯：没有美国市场，公司销量也能超越丰田</h3>
+<p>
+ | 来源: http://www.jxzhijia.cn/blog/20260804-827.shtml
+</p>
+
+<h3>DeepSeek拟明年第二季度在上海上市，梁文锋开启新融资</h3>
+<p>
+ | 来源: http://www.yf-syc.com/blog/20260804-318.shtml
+</p>
+
+<h3>美媒：AI优势削弱叠加苹果诉讼，OpenAI内忧外患、上市窗口收窄</h3>
+<p>
+ | 来源: http://www.cqxingyi.com/blog/20260804-347.shtml
+</p>
+
+<h3>AI算力需求吸走客户 IBM市值蒸发4600亿：CEO公开信说了什么？</h3>
+<p>
+ | 来源: http://www.sl023.com/blog/20260804-583.shtml
+</p>
+
+<h3>躲过328亿美元天价赔偿：苹果在iCloud儿童性虐待诉讼中胜诉</h3>
+<p>
+ | 来源: http://www.sxsslgcxh.com/blog/20260804-890.shtml
+</p>
+
+<h3>OpenAI首款硬件曝光：无屏幕智能音箱 定位家庭AI伴侣</h3>
+<p>
+ | 来源: https://blog.csdn.net/seoppg/article/details/148493454
+</p>
+
+<h3>三星否认考虑赴美上市：没有评估发行ADR可能性</h3>
+<p>
+ | 来源: http://www.kayin.com.cn/blog/20260804-763.shtml
+</p>
+
+<h3>OpenAI反击马斯克窃密官司：xAI诉讼浪费公司资源，需承担百万法律费</h3>
+<p>
+ | 来源: http://mktiyu.com/blog/20260804-389.shtml
+</p>
+
+<h3>先是微软又是苹果，美媒：奥特曼不断与科技巨头决裂</h3>
+<p>
+ | 来源: http://www.imsilicon.com/blog/20260804-568.shtml
+</p>
+
+<h3>诺奖得主等200多位专家发声明：AI将变得极其强大 需引导其造福社会</h3>
+<p>
+ | 来源: http://www.xl-2.com/blog/20260804-414.shtml
+</p>
