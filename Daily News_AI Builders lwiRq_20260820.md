@@ -1,0 +1,502 @@
+<h1> AI Builders Digest 今日热点快报</h1>
+<p><strong>2026年08月20日 23时03分22秒(UTC+8)</strong></p>
+<hr>
+<h3>你们怎么因为别人家孩子打起来了</h3>
+<p>
+ | 来源: http://zc.scminghua.cn/blog/20260820-386.shtml
+</p>
+
+<h3>AI剧盗音维权落地！涉事侵权短剧主动下架</h3>
+<p>
+ | 来源: http://www.yhgsyy.com/blog/20260820-519.shtml
+</p>
+
+<h3>章子怡，投资230万套现3个亿</h3>
+<p>
+ | 来源: http://zhijiandaxi.com/blog/20260820-572.shtml
+</p>
+
+<h3>58岁那英自曝备战演唱会训练安排，一三五练普拉提、二四六撸铁，每次能跑7公里</h3>
+<p>
+ | 来源: http://www.lzfx.com.cn/blog/20260820-952.shtml
+</p>
+
+<h3>44岁任家萱Selina和男友并未领证结婚，二人共同抚养孩子</h3>
+<p>
+ | 来源: http://erp.scminghua.cn/blog/20260820-942.shtml
+</p>
+
+<h3>息影22年, 王祖贤把巅峰的脸租给了AI, 她卖的是“过去”, 戚薇卖的是“现在” | 硬科技·新商业</h3>
+<p>
+ | 来源: http://en.boitown.com/blog/20260820-590.shtml
+</p>
+
+<h3>曹骏拿稳“童年男神”逆袭剧本，直播能救“披哥2026”吗？</h3>
+<p>
+ | 来源: http://www.hengaodebj.com/blog/20260820-279.shtml
+</p>
+
+<h3>“卷生卷死”的短剧，现在还是一门好生意吗？</h3>
+<p>
+ | 来源: http://www.skygp.com/blog/20260820-959.shtml
+</p>
+
+<h3>郭德纲被立案调查后，郭麒麟现状曝光：怎么变成这样了？</h3>
+<p>
+ | 来源: http://tgtg.yanmochina.com/blog/20260820-393.shtml
+</p>
+
+<h3>章子怡靠“一页”赚走3亿，上美却因韩束承压上半年利润下滑超七成</h3>
+<p>
+ | 来源: http://www.scminghua.cn/blog/20260820-341.shtml
+</p>
+
+<h3>从舞台配角到正剧主角，闫佩伦：演员的热度高低从来不由自己掌控</h3>
+<p>
+ | 来源: http://mhback.scminghua.cn/blog/20260820-511.shtml
+</p>
+
+<h3>王鹤棣近30日掉粉超21万</h3>
+<p>
+ | 来源: http://ceshi.antu.com.cn/blog/20260820-911.shtml
+</p>
+
+<h3>窦唯女儿窦佳嫄自曝从小被网暴，12岁确诊精神疾病终身服药，20岁之前与父亲无联系</h3>
+<p>
+ | 来源: http://www.tjztzt.com/blog/20260820-402.shtml
+</p>
+
+<h3>蓝盈莹要求工作群消息尽量秒回，尽量不要拖延，今日事今日毕</h3>
+<p>
+ | 来源: http://www.yx-gas.com/blog/20260820-212.shtml
+</p>
+
+<h3>毕夏首谈丈夫离世：“我说，老公，你已经很棒了，如果你太遭罪的话就走吧”</h3>
+<p>
+ | 来源: http://www.scminghua.cn/blog/20260820-568.shtml
+</p>
+
+<h3>被低估的揽佬</h3>
+<p>
+ | 来源: http://mktiyu.com/blog/20260820-891.shtml
+</p>
+
+<h3>45岁演员纪焕博官宣当准爸爸，与小十岁模特妻子曾被全网劝分！</h3>
+<p>
+ | 来源: http://www.jmvisa.com/blog/20260820-732.shtml
+</p>
+
+<h3>蓝盈莹近30日涨粉近5万</h3>
+<p>
+ | 来源: http://an-lin.cn/blog/20260820-314.shtml
+</p>
+
+<h3>“有钱你去买别墅住呀”，高钧贤就不当言论道歉，解释称“当时女儿才三月龄，但对方没有足够证据就欺负我女儿”</h3>
+<p>
+ | 来源: http://tjmws.com/blog/20260820-422.shtml
+</p>
+
+<h3>跟饶雪漫聊聊“爱不动”的年轻人</h3>
+<p>
+ | 来源: http://www.ucantime.com/blog/20260820-682.shtml
+</p>
+
+<h3>芒果台张睿的这张“透视装”火了！</h3>
+<p>
+ | 来源: http://www.wire-u.com/blog/20260820-656.shtml
+</p>
+
+<h3>AI演员接广告能“永不塌房”吗？合规边界在哪？对话刘双舟</h3>
+<p>
+ | 来源: http://www.thuni-h.com/blog/20260820-253.shtml
+</p>
+
+<h3>套现超3亿元背后，章子怡商业版图揭秘</h3>
+<p>
+ | 来源: http://www.xmjysl.com/blog/20260820-621.shtml
+</p>
+
+<h3>演员蓝盈莹要求工作群消息尽量秒回</h3>
+<p>
+ | 来源: http://www.migun.net.cn/blog/20260820-731.shtml
+</p>
+
+<h3>窦唯高原女儿称自己是父母的爱情结晶，前20年与父亲无联系</h3>
+<p>
+ | 来源: http://mhback.scminghua.cn/blog/20260820-841.shtml
+</p>
+
+<h3>章子怡已成立多家科技公司</h3>
+<p>
+ | 来源: http://.net.cn/blog/20260820-511.shtml
+</p>
+
+<h3>章子怡已布局科技影视等多条赛道</h3>
+<p>
+ | 来源: http://www.chaohealloy.com/blog/20260820-599.shtml
+</p>
+
+<h3>窦唯女儿自曝20岁之前与窦唯没有过沟通</h3>
+<p>
+ | 来源: http://www.hongyiltd.cn/blog/20260820-800.shtml
+</p>
+
+<h3>从“帝王专业户”到景区NPC，郑国霖：我是普通人，靠本事吃饭没问题</h3>
+<p>
+ | 来源: http://www.brendan.com.cn/blog/20260820-608.shtml
+</p>
+
+<h3>邓超孙俪带娃逛街，儿子等等拄拐，“邓超孙俪疑似吵架”登上热搜</h3>
+<p>
+ | 来源: http://www.sarchee.com/blog/20260820-947.shtml
+</p>
+
+<h3>冬日之狼的温柔归途：德约科维奇，以爱为铠甲，与人生共生成长</h3>
+<p>
+ | 来源: http://www.airfast.com/blog/20260820-390.shtml
+</p>
+
+<h3>蓝盈莹的“用力”和“野心”，恰恰是被父亲抛弃一生的创伤</h3>
+<p>
+ | 来源: http://xuhang.qiyitech.cn/blog/20260820-460.shtml
+</p>
+
+<h3>章子怡赚麻了！投资230万4年一把套现3.045亿</h3>
+<p>
+ | 来源: http://wheat.org.cn/blog/20260820-134.shtml
+</p>
+
+<h3>艺人欧弟携全家移居日本？本人辟谣</h3>
+<p>
+ | 来源: http://www.ahycfj.com/blog/20260820-185.shtml
+</p>
+
+<h3>曾经顶流｜郑国霖：从“帝王专业户”到景区NPC，人得靠本事吃饭</h3>
+<p>
+ | 来源: http://tjjsg.com/blog/20260820-807.shtml
+</p>
+
+<h3>蓝盈莹回应蹭蓝天野流量争议：她曾多次澄清，但没有人愿意听</h3>
+<p>
+ | 来源: http://www.boitown.com/blog/20260820-668.shtml
+</p>
+
+<h3>何炅自曝因年龄大被密室拒绝，幽默调侃：“实在不行我当场做18个蹲起！”</h3>
+<p>
+ | 来源: http://wire-u.com/blog/20260820-783.shtml
+</p>
+
+<h3>王诗晴官宣怀孕：“从今以后，要告别二人世界了”</h3>
+<p>
+ | 来源: http://njypj.net/blog/20260820-927.shtml
+</p>
+
+<h3>别让她跑了？章子怡套现3亿登上热搜不到24小时，恶心的一幕出现</h3>
+<p>
+ | 来源: http://drdl.wese.net/blog/20260820-947.shtml
+</p>
+
+<h3>2026年，无戏可拍的演员们，涌向了全国景区</h3>
+<p>
+ | 来源: http://www.hidier.com/blog/20260820-302.shtml
+</p>
+
+<h3>登上热搜！章子怡套现3亿</h3>
+<p>
+ | 来源: http://www.huazhong-ex.com/blog/20260820-614.shtml
+</p>
+
+<h3>放郭德纲一马，等于告诉世界：我们将继续开放，我们将继续拥抱世界</h3>
+<p>
+ | 来源: http://www.apbarbedwire.com/blog/20260820-687.shtml
+</p>
+
+<h3>王宝强百花奖0票！他从河北农村苦熬20年成了影帝，评委的一个决定，让上亿网友看哭了！</h3>
+<p>
+ | 来源: http://www.lzfx.com.cn/blog/20260820-884.shtml
+</p>
+
+<h3>20岁的她，确实不一样了</h3>
+<p>
+ | 来源: http://www.yf-syc.com/blog/20260820-541.shtml
+</p>
+
+<h3>歌手杨臣刚：“现在要火一首歌，对我来说吸引力不是很大了。我要再出手，肯定是要颠覆这个行业！”</h3>
+<p>
+ | 来源: http://www.chinajinxian.com/blog/20260820-623.shtml
+</p>
+
+<h3>从霸总到小苦瓜：国产言情剧的男主为什么越来越“惨”了？</h3>
+<p>
+ | 来源: http://www.sf304.cc/blog/20260820-223.shtml
+</p>
+
+<h3>当蒋奇明、李诞戴上同一副AI眼镜，2026年度最期待新品来了</h3>
+<p>
+ | 来源: http://www.fastchina.net/blog/20260820-208.shtml
+</p>
+
+<h3>赵建铭开新诊所后就变心了？陈幸妤爆带陈水扁看诊被一路晾着</h3>
+<p>
+ | 来源: http://www.shunlijunjidian.com/blog/20260820-323.shtml
+</p>
+
+<h3>知名歌手广州开演唱会，突然坐地上，称“太热没风，有点晕”！广东天气最新提醒</h3>
+<p>
+ | 来源: http://www.jsxdaf.com/blog/20260820-182.shtml
+</p>
+
+<h3>艺人私自接演厂牌演唱会未报备，经纪公司索赔105万元</h3>
+<p>
+ | 来源: http://www.yowelt.com/blog/20260820-210.shtml
+</p>
+
+<h3>杨国福麻辣烫日本新店开业称“羽生结弦为其送花”，遭本人打假后集团致歉</h3>
+<p>
+ | 来源: http://www.goldenflame.com.cn/blog/20260820-968.shtml
+</p>
+
+<h3>把周杰伦换成张凌赫的可比克，00后买账吗？</h3>
+<p>
+ | 来源: http://m.migun.net.cn/blog/20260820-852.shtml
+</p>
+
+<h3>蓝盈莹名下多家公司已注销</h3>
+<p>
+ | 来源: http://wzjh9999.com/blog/20260820-628.shtml
+</p>
+
+<h3>吴建豪回应妻子被曝学历造假：“谎报年龄、学历造假的说法，均非事实”</h3>
+<p>
+ | 来源: http://www.boitown.com/blog/20260820-446.shtml
+</p>
+
+<h3>黄圣依离婚后首次带儿子安麟出镜，儿子眉眼长相很像黄圣依</h3>
+<p>
+ | 来源: http://www.cqytcp.com/blog/20260820-846.shtml
+</p>
+
+<h3>林志颖透露见过好友林俊杰女友七七本人：称赞对方 “很乖，很腼腆”</h3>
+<p>
+ | 来源: http://www.cm5g.com/blog/20260820-732.shtml
+</p>
+
+<h3>林志颖说kimi不想出道，不希望曝光</h3>
+<p>
+ | 来源: http://tms.862156.net/blog/20260820-191.shtml
+</p>
+
+<h3>周星驰：不会演戏，对演出的兴趣变少</h3>
+<p>
+ | 来源: http://www.ncqt.cn/blog/20260820-272.shtml
+</p>
+
+<h3>郑业成黄誉博近期均掉粉</h3>
+<p>
+ | 来源: http://en.boitown.com/blog/20260820-752.shtml
+</p>
+
+<h3>郭富城开上X9，直接绷不住了</h3>
+<p>
+ | 来源: http://www.hkcxwl.com/blog/20260820-171.shtml
+</p>
+
+<h3>登上热搜！李嫣几乎看不见唇腭裂修复痕迹</h3>
+<p>
+ | 来源: http://www.mingdemuye.com/blog/20260820-680.shtml
+</p>
+
+<h3>已分手七年，38岁曹骏与36岁蓝盈莹已彻成过去式，多少人的意难平</h3>
+<p>
+ | 来源: http://www.hdhc.com.cn/blog/20260820-254.shtml
+</p>
+
+<h3>曾经顶流｜对话杨臣刚：不羡慕刀郎依然爆火，人各有命不强求</h3>
+<p>
+ | 来源: http://www.junaochina.com/blog/20260820-324.shtml
+</p>
+
+<h3>继柏林电影节之后，《罗斯》与《告知信》在奥斯卡再度对决</h3>
+<p>
+ | 来源: http://www.huaiheedu.com/blog/20260820-542.shtml
+</p>
+
+<h3>《空枪》票房突破8000万</h3>
+<p>
+ | 来源: http://wap.tjmws.com/blog/20260820-629.shtml
+</p>
+
+<h3>暴力、霸权与高傲——美国战争电影的历史解读与伦理批判</h3>
+<p>
+ | 来源: http://www.gdrongda.com/blog/20260820-683.shtml
+</p>
+
+<h3>诺兰经典代表作，我认为不过如此</h3>
+<p>
+ | 来源: http://www.hrfgj.com/blog/20260820-969.shtml
+</p>
+
+<h3>李小龙的电影，很酷，但有时候也很傻</h3>
+<p>
+ | 来源: http://www.skygp.com/blog/20260820-702.shtml
+</p>
+
+<h3>反对下架！福克斯公开力挺电影《牛来》</h3>
+<p>
+ | 来源: http://www.justop.vip/blog/20260820-455.shtml
+</p>
+
+<h3>夜读｜当孩子被当作武器，一个厨子能做什么？</h3>
+<p>
+ | 来源: http://tgtg.yanmochina.com/blog/20260820-658.shtml
+</p>
+
+<h3>《牛来》在海外爆火，竟成了老外眼里的“人类艺术之光"?</h3>
+<p>
+ | 来源: http://www.glmckj.cn/blog/20260820-481.shtml
+</p>
+
+<h3>《牛来》奇奇怪怪的火了，搞得日本网民也想去尝尝咸淡</h3>
+<p>
+ | 来源: http://www.cqydcy.com/blog/20260820-439.shtml
+</p>
+
+<h3>龙餐馆：一勺人间烟火，如何温暖乱世人间？</h3>
+<p>
+ | 来源: http://www.kayin.com.cn/blog/20260820-674.shtml
+</p>
+
+<h3>起底“牛来”：一条热搜引爆的现象级传播</h3>
+<p>
+ | 来源: http://www.lzfx.com.cn/blog/20260820-659.shtml
+</p>
+
+<h3>参考消息刊发印媒文章：力压《奥德赛》，《欢迎来龙餐馆》取得票房佳绩</h3>
+<p>
+ | 来源: http://www.mhui168.com/blog/20260820-599.shtml
+</p>
+
+<h3>《牛来》破圈震惊日本游戏人 小高和刚:希望日本引进</h3>
+<p>
+ | 来源: http://drdl.wese.net/blog/20260820-647.shtml
+</p>
+
+<h3>无限流真的可以拯救打工人吗？</h3>
+<p>
+ | 来源: http://www.cqsxjd.com/blog/20260820-166.shtml
+</p>
+
+<h3>泰国网红神还原《牛来》</h3>
+<p>
+ | 来源: http://www.yf-syc.com/blog/20260820-300.shtml
+</p>
+
+<h3>当“天真”的诺兰改写复杂的《奥德赛》</h3>
+<p>
+ | 来源: http://www.kaimori.cn/blog/20260820-860.shtml
+</p>
+
+<h3>关于《牛来》，或许我们该聊点别的</h3>
+<p>
+ | 来源: http://www.brendan.com.cn/blog/20260820-811.shtml
+</p>
+
+<h3>我三刷了「满血版」的《奥德赛》，总结出这份最全 IMAX 观影指南（附推荐影厅）</h3>
+<p>
+ | 来源: http://erp.scminghua.cn/blog/20260820-949.shtml
+</p>
+
+<h3>女主播看《黑钟馗》起鸡皮疙瘩:电影 艺术 巨大飞跃</h3>
+<p>
+ | 来源: https://github.com/mikahls/back/tree/main
+</p>
+
+<h3>2026年度票房超265亿，暑期档观影场次、人数再创新高</h3>
+<p>
+ | 来源: http://api.scminghua.cn/blog/20260820-926.shtml
+</p>
+
+<h3>复盘来时路，《牛来》如何被推入公共视野？</h3>
+<p>
+ | 来源: http://www.aiteou.com/blog/20260820-990.shtml
+</p>
+
+<h3>《牛来》票房破3000万</h3>
+<p>
+ | 来源: http://hanlonggf.com/blog/20260820-118.shtml
+</p>
+
+<h3>朱振宇｜从智计到忏悔：《奥德赛》的八个片段</h3>
+<p>
+ | 来源: http://tjztzt.com/blog/20260820-103.shtml
+</p>
+
+<h3>电影《空枪》总票房破6000万</h3>
+<p>
+ | 来源: http://www.xiaoerlang100.com/blog/20260820-982.shtml
+</p>
+
+<h3>不止烟火与炮火：为什么每个青少年都该看一看《欢迎来龙餐馆》</h3>
+<p>
+ | 来源: http://jsxfgroup.com/blog/20260820-341.shtml
+</p>
+
+<h3>《龙餐馆》的品质，以及《牛来》的热度</h3>
+<p>
+ | 来源: http://www.xinyunchina.com/blog/20260820-237.shtml
+</p>
+
+<h3>坐商务舱来看《牛来》？开什么玩笑</h3>
+<p>
+ | 来源: http://www.dfkbedu.com/blog/20260820-182.shtml
+</p>
+
+<h3>《牛来》放映厅笑声不断，文旅人该从中看到什么？</h3>
+<p>
+ | 来源: http://www.an-lin.cn/blog/20260820-205.shtml
+</p>
+
+<h3>电影《怪屋》定档8月28日</h3>
+<p>
+ | 来源: http://www.fiberer.com/blog/20260820-984.shtml
+</p>
+
+<h3>浙江宣传：《牛来》能代表新大众文艺吗？</h3>
+<p>
+ | 来源: http://3map.com.cn/blog/20260820-117.shtml
+</p>
+
+<h3>七夕票房比前一天多了一个小目标，但爱情片不香了</h3>
+<p>
+ | 来源: http://www.zongmeng123.com/blog/20260820-710.shtml
+</p>
+
+<h3>妈妈不会说爱你</h3>
+<p>
+ | 来源: http://tms.862156.net/blog/20260820-237.shtml
+</p>
+
+<h3>《牛来》电影的走红始于“猎奇”，终于“逆反”！</h3>
+<p>
+ | 来源: http://drdl.wese.net/blog/20260820-186.shtml
+</p>
+
+<h3>电影《空枪》实时票房破5000万</h3>
+<p>
+ | 来源: http://www.jiamaofood.com/blog/20260820-375.shtml
+</p>
+
+<h3>连续40天单日票房过亿，七夕档为暑期再添一把火</h3>
+<p>
+ | 来源: http://www.klmysjy.com/blog/20260820-196.shtml
+</p>
+
+<h3>外国人也惊呆！《牛来》大爆直逼1亿票房？纯手搓“大便”画质引网友惊叹：接财运！</h3>
+<p>
+ | 来源: http://www.qiyitech.cn/blog/20260820-147.shtml
+</p>
+
+<h3>侯孝贤这部电影震撼力太大</h3>
+<p>
+ | 来源: http://www.cannice.com/blog/20260820-937.shtml
+</p>
