@@ -1,0 +1,502 @@
+<h1> AI Builders Digest 今日热点快报</h1>
+<p><strong>2026年08月23日 22时18分17秒(UTC+8)</strong></p>
+<hr>
+<h3>扎克伯格呼吁美国政府重新审视AI模型蒸馏政策</h3>
+<p>
+ | 来源: http://hastelloy.com.cn/blog/20260823-441.shtml
+</p>
+
+<h3>找矿成果+1！四川一新矿物获国际认证</h3>
+<p>
+ | 来源: http://erp.scminghua.cn/blog/20260823-808.shtml
+</p>
+
+<h3>乌克兰称俄军大规模袭击造成至少9人死亡</h3>
+<p>
+ | 来源: http://erp.scminghua.cn/blog/20260823-363.shtml
+</p>
+
+<h3>澳央行维持利率不变 警告通胀风险犹存</h3>
+<p>
+ | 来源: http://www.nisang.com/blog/20260823-999.shtml
+</p>
+
+<h3>一艘沙特船只在曼德海峡遭袭</h3>
+<p>
+ | 来源: http://www.bothcapital.com/blog/20260823-594.shtml
+</p>
+
+<h3>哥伦比亚对原产于中国的柠檬酸启动反倾销调查</h3>
+<p>
+ | 来源: http://www.analytech.cn/blog/20260823-712.shtml
+</p>
+
+<h3>台风“白海豚”过境后 宁波舟山港生产作业有序恢复</h3>
+<p>
+ | 来源: http://www.hkcxwl.com/blog/20260823-459.shtml
+</p>
+
+<h3>特斯拉在美召回超2万辆Model 3和Model Y，因近光灯亮度超标</h3>
+<p>
+ | 来源: http://www.huazhong-ex.com/blog/20260823-104.shtml
+</p>
+
+<h3>波音777宽体客机改装货机生产线落地青岛，计划9月投产</h3>
+<p>
+ | 来源: http://wzas119.com/blog/20260823-813.shtml
+</p>
+
+<h3>美不断收紧移民政策，今年以来吊销17.5万份签证</h3>
+<p>
+ | 来源: http://www.bugtxt.com
+</p>
+
+<h3>芬兰研究机构：欧盟仍是俄天然气最大买家</h3>
+<p>
+ | 来源: http://jsxfgroup.com/blog/20260823-832.shtml
+</p>
+
+<h3>期货收评：地缘风暴引爆原油系！低硫燃油暴涨超6% 欧线集运重挫超4%！</h3>
+<p>
+ | 来源: http://www.baijiatoy.com/blog/20260823-533.shtml
+</p>
+
+<h3>ETF两市成交额报4299.76亿元，较昨日此时缩量579.85亿元</h3>
+<p>
+ | 来源: http://www.xinyunchina.com/blog/20260823-775.shtml
+</p>
+
+<h3>ETF收评：标普油气ETF领涨6.82%，黄金股ETF跌5.94%</h3>
+<p>
+ | 来源: http://www.gy-hx.com/blog/20260823-686.shtml
+</p>
+
+<h3>A股收评：沪指震荡走低跌0.82%，有色金属板块集体回调</h3>
+<p>
+ | 来源: http://www.junaochina.com/blog/20260823-519.shtml
+</p>
+
+<h3>股指期货午盘收盘 主力合约涨跌互现</h3>
+<p>
+ | 来源: http://www.dfkbedu.com/blog/20260823-631.shtml
+</p>
+
+<h3>五粮液集团等成立新材料科技公司</h3>
+<p>
+ | 来源: http://www.hdhc.com.cn/blog/20260823-670.shtml
+</p>
+
+<h3>中国纺织品进出口商会：1—6月我国纱线面料出口426.8亿美元 同比增长2.8%</h3>
+<p>
+ | 来源: http://www.glmckj.cn/blog/20260823-151.shtml
+</p>
+
+<h3>花旗：投资者转向看多股市，空头头寸面临风险</h3>
+<p>
+ | 来源: http://ceshi.nankang.com.cn/blog/20260823-957.shtml
+</p>
+
+<h3>持续遭无人机袭击 利比亚或关闭一炼油厂</h3>
+<p>
+ | 来源: http://www.hengaodebj.com/blog/20260823-786.shtml
+</p>
+
+<h3>甘咨询上演“地天板”</h3>
+<p>
+ | 来源: http://sz.sawenow.com/blog/20260823-133.shtml
+</p>
+
+<h3>上期所原油主力合约大涨6% 大商所纯苯主力合约涨超3%</h3>
+<p>
+ | 来源: http://www.etmval.com/blog/20260823-242.shtml
+</p>
+
+<h3>找矿+1！四川一新矿物获国际认证</h3>
+<p>
+ | 来源: http://wap.tjmws.com/blog/20260823-158.shtml
+</p>
+
+<h3>美媒：特朗普离开土耳其未乘“空军一号”</h3>
+<p>
+ | 来源: http://www.fiberer.com/blog/20260823-717.shtml
+</p>
+
+<h3>巴克莱维持看好美国成长板块，预计欧洲动量行情缓慢修复</h3>
+<p>
+ | 来源: http://www.2738128.com/blog/20260823-219.shtml
+</p>
+
+<h3>现货黄金失守4360美元/盎司</h3>
+<p>
+ | 来源: http://fenfa2.xizue.com/blog/20260823-937.shtml
+</p>
+
+<h3>天津发布地质灾害黄色预警</h3>
+<p>
+ | 来源: http://www.laserl.com/blog/20260823-571.shtml
+</p>
+
+<h3>上期所燃油、低硫燃油主力合约大涨6%</h3>
+<p>
+ | 来源: http://www.goldenflame.com.cn/blog/20260823-785.shtml
+</p>
+
+<h3>韩国综指收涨0.73%</h3>
+<p>
+ | 来源: http://zhijiandaxi.com/blog/20260823-407.shtml
+</p>
+
+<h3>上期所原油主力合约大涨5%</h3>
+<p>
+ | 来源: http://byw-803694.hichina.com/blog/20260823-289.shtml
+</p>
+
+<h3>韩国二季度出口同比增57%至2755亿美元创新高</h3>
+<p>
+ | 来源: http://www.prodigy.net.cn/blog/20260823-504.shtml
+</p>
+
+<h3>暴雨黄色预警生效中 河南部分地区防汛应急响应提升至三级</h3>
+<p>
+ | 来源: http://www.ucantime.com/blog/20260823-237.shtml
+</p>
+
+<h3>遵义市酒业协会撤销“中国酱香酒酿酒大师”相关称号</h3>
+<p>
+ | 来源: http://www.hane.com.cn/blog/20260823-434.shtml
+</p>
+
+<h3>沪深京三市成交额超2万亿元，较上日此时缩量2074亿元</h3>
+<p>
+ | 来源: http://www.hanlonggf.com/blog/20260823-182.shtml
+</p>
+
+<h3>阿维塔陈卓：不能沦为“硬件整合商” IPO相关工作稳步推进</h3>
+<p>
+ | 来源: http://www.hantec.com.cn/blog/20260823-653.shtml
+</p>
+
+<h3>实控人欲转让价值5亿元股份 天合光能回应</h3>
+<p>
+ | 来源: http://www.xmjysl.com/blog/20260823-629.shtml
+</p>
+
+<h3>俄称对基辅等地发动打击 乌称袭击已致6人死亡</h3>
+<p>
+ | 来源: http://www.sf304.cc/blog/20260823-135.shtml
+</p>
+
+<h3>“雪龙”号顺利完成12个冰站作业任务</h3>
+<p>
+ | 来源: http://www.botaijx.com/blog/20260823-895.shtml
+</p>
+
+<h3>哥伦比亚新政府宣布承认以色列对戈兰高地主权</h3>
+<p>
+ | 来源: http://www.dcsz.com.cn/blog/20260823-950.shtml
+</p>
+
+<h3>减速器板块持续走高，绿的谐波涨超10%</h3>
+<p>
+ | 来源: http://api.scminghua.cn/blog/20260823-405.shtml
+</p>
+
+<h3>智谱ZCode用户突破100万 推出四项新功能</h3>
+<p>
+ | 来源: http://www.xinyunchina.com/blog/20260823-121.shtml
+</p>
+
+<h3>上期所欧线集运主力合约大跌7%</h3>
+<p>
+ | 来源: http://www.skygp.com/blog/20260823-255.shtml
+</p>
+
+<h3>悍高集团：随着原材料价格走势趋于平稳 公司盈利能力将得到进一步改善</h3>
+<p>
+ | 来源: https://blog.csdn.net/seoppg/article/details/148493454
+</p>
+
+<h3>腾讯WorkBuddy升级多端同步能力</h3>
+<p>
+ | 来源: http://pudonghuwai.big-shanghai.com/blog/20260823-658.shtml
+</p>
+
+<h3>现货黄金失守4370美元/盎司</h3>
+<p>
+ | 来源: http://www.2738128.com/blog/20260823-691.shtml
+</p>
+
+<h3>英业达第二季度营收2698.6亿元台币，净利润38.9亿元台币</h3>
+<p>
+ | 来源: http://www.chinafmyj.com/blog/20260823-503.shtml
+</p>
+
+<h3>澳洲联储主席布洛克：如有必要，将再次加息</h3>
+<p>
+ | 来源: http://www.linksoon.cn/blog/20260823-264.shtml
+</p>
+
+<h3>四川四银行联合筹建理财公司新进展：专项工作组已成立</h3>
+<p>
+ | 来源: http://tgtg.yanmochina.com/blog/20260823-141.shtml
+</p>
+
+<h3>现货白银跌超2%</h3>
+<p>
+ | 来源: http://www.yowelt.com/blog/20260823-428.shtml
+</p>
+
+<h3>公募基金周新发数量创近7周新高</h3>
+<p>
+ | 来源: http://chinajinxian.com/blog/20260823-845.shtml
+</p>
+
+<h3>太湖发生2026年第1号洪水</h3>
+<p>
+ | 来源: http://www.hnxiaoxin.com/blog/20260823-755.shtml
+</p>
+
+<h3>纽约梅隆：澳大利亚央行在维持利率不变的同时保持偏紧缩倾向</h3>
+<p>
+ | 来源: http://www.hzmhong.com/blog/20260823-530.shtml
+</p>
+
+<h3>午后多支机器人ETF涨超2%</h3>
+<p>
+ | 来源: http://www.cannice.com/blog/20260823-659.shtml
+</p>
+
+<h3>交通运输部：维持强降雨二级防御响应 43个路段管控</h3>
+<p>
+ | 来源: http://www.chuang-ao.cn/blog/20260823-698.shtml
+</p>
+
+<h3>奥托立夫芜湖新工厂正式奠基，预计明年投产</h3>
+<p>
+ | 来源: http://wh.kkpark.cc/blog/20260823-147.shtml
+</p>
+
+<h3>减速器板块短线拉升，巨轮智能涨停</h3>
+<p>
+ | 来源: https://github.com/mikahls/back/tree/main
+</p>
+
+<h3>电力板块短线走高，嘉泽新能涨停</h3>
+<p>
+ | 来源: http://www.huhangonline.com/blog/20260823-499.shtml
+</p>
+
+<h3>英格兰近四分之三地区进入干旱状态</h3>
+<p>
+ | 来源: http://en.boitown.com/blog/20260823-519.shtml
+</p>
+
+<h3>消息称SK海力士推进EUV工艺 开始引入新材料PSM</h3>
+<p>
+ | 来源: http://www.yf-syc.com/blog/20260823-478.shtml
+</p>
+
+<h3>伊朗总统说与最高领袖会谈非常成功</h3>
+<p>
+ | 来源: http://fastchina.net/blog/20260823-141.shtml
+</p>
+
+<h3>浙江宁波专项特许捕捞今日将启动</h3>
+<p>
+ | 来源: http://www.imsilicon.com/blog/20260823-271.shtml
+</p>
+
+<h3>三星SDI将完全接管与通用汽车在美合资企业，同意联合开发下一代电动汽车电池</h3>
+<p>
+ | 来源: http://www.mingdemuye.com/blog/20260823-703.shtml
+</p>
+
+<h3>淘宝闪购在上海、杭州内测到家餐饮项目</h3>
+<p>
+ | 来源: http://drdl.wese.net/blog/20260823-205.shtml
+</p>
+
+<h3>财通福鑫定开混合：将于8月11日下午开盘起至当日收盘停牌</h3>
+<p>
+ | 来源: http://www.sigehui.com/blog/20260823-965.shtml
+</p>
+
+<h3>澳洲联储：将在上行风险显现时进一步提高利率</h3>
+<p>
+ | 来源: http://www.lzfx.com.cn/blog/20260823-193.shtml
+</p>
+
+<h3>澳大利亚央行现金利率目标维持在4.35%，预估为4.35%</h3>
+<p>
+ | 来源: http://www.qiangyang.com.cn/blog/20260823-903.shtml
+</p>
+
+<h3>安徽淠河发生2026年第1号洪水</h3>
+<p>
+ | 来源: http://www.ykbees.com/blog/20260823-240.shtml
+</p>
+
+<h3>深圳市与沃尔玛中国签署战略合作框架协议</h3>
+<p>
+ | 来源: http://www.jiamaofood.com/blog/20260823-978.shtml
+</p>
+
+<h3>王晓晖施小琳会见农业农村部党组书记、部长张柱</h3>
+<p>
+ | 来源: http://www.nisang.com/blog/20260823-334.shtml
+</p>
+
+<h3>机构：预估2028年全球卫星火箭发射市场规模将达404亿美元</h3>
+<p>
+ | 来源: http://www.boitown.com/blog/20260823-876.shtml
+</p>
+
+<h3>机构：中央处理器或成为台积电的新增长动力</h3>
+<p>
+ | 来源: http://baijiatoy.com/blog/20260823-151.shtml
+</p>
+
+<h3>8月11日午间公告一览：中国铁塔2026年上半年净利润74.89亿元，同比增长30.1%</h3>
+<p>
+ | 来源: http://www.migun.net.cn/blog/20260823-997.shtml
+</p>
+
+<h3>港股午评：恒生指数跌0.63%，恒生科技指数跌1.27%</h3>
+<p>
+ | 来源: http://www.021wfz.com/blog/20260823-789.shtml
+</p>
+
+<h3>爱芯元智下一代大算力AI芯片完成流片，支持多芯级联实现边缘侧满血大模型推理</h3>
+<p>
+ | 来源: http://www.mhui168.com/blog/20260823-207.shtml
+</p>
+
+<h3>通用汽车据悉计划将印第安纳州电池合资企业的股份出售给三星SDI</h3>
+<p>
+ | 来源: http://www.wire-u.com/blog/20260823-893.shtml
+</p>
+
+<h3>南大光电：ArF光刻胶有六款产品通过客户验证并实现销售，目前50吨产能尚未满产</h3>
+<p>
+ | 来源: http://www.2003.com.cn/blog/20260823-606.shtml
+</p>
+
+<h3>富瀚微：公司有芯片供货给工业机器人公司</h3>
+<p>
+ | 来源: http://chejia.jmyj.net.cn/blog/20260823-823.shtml
+</p>
+
+<h3>机构：2026年第二季度全球平板电脑市场出货量下滑10%</h3>
+<p>
+ | 来源: http://wap.youpin5g.com/blog/20260823-118.shtml
+</p>
+
+<h3>红果短剧：7月累计拦截下架12347部AI剧</h3>
+<p>
+ | 来源: http://www.shunlijunjidian.com/blog/20260823-605.shtml
+</p>
+
+<h3>国家防总、应急管理部针对北京、天津启动防汛四级应急响应</h3>
+<p>
+ | 来源: http://drdl.wese.net/blog/20260823-111.shtml
+</p>
+
+<h3>ETF两市成交额报2552.05亿元，较昨日此时缩量509.26亿元</h3>
+<p>
+ | 来源: http://www.zongmeng123.com/blog/20260823-867.shtml
+</p>
+
+<h3>期货午评：美伊谈判陷入僵局！原油燃油暴涨超4%，欧线集运崩跌超6%</h3>
+<p>
+ | 来源: http://www.jingtouwang.com.cn/blog/20260823-289.shtml
+</p>
+
+<h3>2026年7月智利碳酸锂出口数量为2.34万吨 硫酸锂出口数量为0.77万吨</h3>
+<p>
+ | 来源: http://www.xinghualou.net.cn/blog/20260823-256.shtml
+</p>
+
+<h3>A股午评：创业板指高开高走涨1.41%，MLCC概念、影视院线、医药商业板块涨幅居前</h3>
+<p>
+ | 来源: http://www.carinway.com/blog/20260823-151.shtml
+</p>
+
+<h3>ETF午评：标普油气ETF领涨4.54%，航空航天ETF跌2.49%</h3>
+<p>
+ | 来源: http://www.xazxwl.com.cn/blog/20260823-422.shtml
+</p>
+
+<h3>股指期货早盘收盘 主力合约多数上涨</h3>
+<p>
+ | 来源: http://tgtg.yanmochina.com/blog/20260823-723.shtml
+</p>
+
+<h3>中指研究院：前7个月全国法拍住宅成交同比增长超四成</h3>
+<p>
+ | 来源: http://www.scminghua.cn/blog/20260823-113.shtml
+</p>
+
+<h3>蚂蚁集团领投 戴盟机器人宣布完成数亿元融资</h3>
+<p>
+ | 来源: http://zhuokunchina.com/blog/20260823-859.shtml
+</p>
+
+<h3>美国国际贸易委员会作出金属硅双反产业损害终裁</h3>
+<p>
+ | 来源: http://boyuntong.cn/blog/20260823-881.shtml
+</p>
+
+<h3>千问开放AI眼镜生态 支持自建导游、教练、巡检等多种skill</h3>
+<p>
+ | 来源: http://api.scminghua.cn/blog/20260823-926.shtml
+</p>
+
+<h3>上期所欧线集运主力合约大跌6%</h3>
+<p>
+ | 来源: http://www.chinanewman.cn/blog/20260823-140.shtml
+</p>
+
+<h3>日本央行据悉将在9月加息以应对通胀风险</h3>
+<p>
+ | 来源: http://hygl.sxsslgcxh.com/blog/20260823-672.shtml
+</p>
+
+<h3>TrendForce：DDR5 16Gb (2Gx8) 4800/5600现货均价较上日上涨0.32%</h3>
+<p>
+ | 来源: http://www.bjtcpip.com/blog/20260823-479.shtml
+</p>
+
+<h3>四川宜宾市高县发生3.4级地震 震源深度5千米</h3>
+<p>
+ | 来源: http://www.hw-dz.com/blog/20260823-532.shtml
+</p>
+
+<h3>谷歌在韩月活用户数首超韩国互联网巨头Naver</h3>
+<p>
+ | 来源: http://www.scminghua.cn/blog/20260823-506.shtml
+</p>
+
+<h3>上期所低硫燃油主力合约大涨5%</h3>
+<p>
+ | 来源: http://www.hane.com.cn/blog/20260823-243.shtml
+</p>
+
+<h3>三星电子相对于SK海力士的市盈率溢价或将扩大</h3>
+<p>
+ | 来源: http://www.nisang.com/blog/20260823-320.shtml
+</p>
+
+<h3>多支黄金股ETF回调</h3>
+<p>
+ | 来源: http://www.zlbigdata.com/blog/20260823-812.shtml
+</p>
+
+<h3>光刻机板块拉升，旭光电子涨停</h3>
+<p>
+ | 来源: http://www.jsxxwy.com/blog/20260823-987.shtml
+</p>
+
+<h3>存储芯片板块走高，太极实业涨停</h3>
+<p>
+ | 来源: http://www.hf-hj.com/blog/20260823-281.shtml
+</p>
