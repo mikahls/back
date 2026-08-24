@@ -1,0 +1,502 @@
+<h1> AI Builders Digest 今日热点快报</h1>
+<p><strong>2026年08月24日 23时32分30秒(UTC+8)</strong></p>
+<hr>
+<h3>德明利今日跌1.06% 2家机构专用席位净卖出4.44亿元</h3>
+<p>
+ | 来源: http://www.an-lin.cn/blog/20260824-223.shtml
+</p>
+
+<h3>现货黄金失守4060美元/盎司</h3>
+<p>
+ | 来源: http://www.xinghualou.net.cn/blog/20260824-171.shtml
+</p>
+
+<h3>领益智造：终止参与富通嘉善重整投资事项</h3>
+<p>
+ | 来源: http://www.sxsslgcxh.com/blog/20260824-436.shtml
+</p>
+
+<h3>中马各界探讨人工智能赋能经贸合作新机遇</h3>
+<p>
+ | 来源: http://www.bothcapital.com/blog/20260824-888.shtml
+</p>
+
+<h3>Arm Holdings盘前涨5.03%，现报253.68美元</h3>
+<p>
+ | 来源: http://www.bjszxc.com/blog/20260824-750.shtml
+</p>
+
+<h3>中国长征火箭成立龙擎宇航技术公司</h3>
+<p>
+ | 来源: http://m.migun.net.cn/blog/20260824-916.shtml
+</p>
+
+<h3>超威半导体美股盘前涨超4%</h3>
+<p>
+ | 来源: http://zhuokunchina.com/blog/20260824-288.shtml
+</p>
+
+<h3>截至2025年末 全国超5353万人享受老年人津补贴</h3>
+<p>
+ | 来源: http://www.pinyuandz.com/blog/20260824-652.shtml
+</p>
+
+<h3>万华化学：福建工业园80万吨/年MDI装置恢复生产</h3>
+<p>
+ | 来源: http://www.zongmeng123.com/blog/20260824-508.shtml
+</p>
+
+<h3>现货黄金跌超1%</h3>
+<p>
+ | 来源: http://wap.tjmws.com/blog/20260824-932.shtml
+</p>
+
+<h3>江河集团：2026年上半年累计中标金额130.92亿元，同比下降4.40%</h3>
+<p>
+ | 来源: http://www.alnet.cn/blog/20260824-152.shtml
+</p>
+
+<h3>我国192.91万人享受长期护理保险待遇</h3>
+<p>
+ | 来源: http://www.hinapump.com/blog/20260824-501.shtml
+</p>
+
+<h3>四部门：保护金融消费者等利益相关方合法权益</h3>
+<p>
+ | 来源: http://www.ahycfj.com/blog/20260824-921.shtml
+</p>
+
+<h3>港股收评：恒生指数涨0.1%，恒生科技指数涨0.53%</h3>
+<p>
+ | 来源: http://www.gdgjy.com/blog/20260824-566.shtml
+</p>
+
+<h3>国内航线燃油附加费8月5日起再下调</h3>
+<p>
+ | 来源: http://hhylj.cn/blog/20260824-513.shtml
+</p>
+
+<h3>东山精密：累计回购25.52万股，成交总金额4999.48万元</h3>
+<p>
+ | 来源: http://www.wsclyq.com/blog/20260824-734.shtml
+</p>
+
+<h3>中蒙举行第二十四轮领事磋商</h3>
+<p>
+ | 来源: http://www.sf304.cc/blog/20260824-286.shtml
+</p>
+
+<h3>Godaddy美股盘前跌超10%</h3>
+<p>
+ | 来源: http://pudonghuwai.big-shanghai.com/blog/20260824-531.shtml
+</p>
+
+<h3>券商交易系统接入将迎规范：不得为特定客户提供技术或业务资源差异化安排</h3>
+<p>
+ | 来源: http://www.hidier.com/blog/20260824-603.shtml
+</p>
+
+<h3>*ST康乐：三价人乳头瘤病毒疫苗获国家药监局批准上市</h3>
+<p>
+ | 来源: http://ceshi.zhenguangxc.com/blog/20260824-440.shtml
+</p>
+
+<h3>青达环保：向特定对象发行A股股票获中国证监会同意注册批复</h3>
+<p>
+ | 来源: http://sh-pheal.com/blog/20260824-432.shtml
+</p>
+
+<h3>四部门联合发布22条措施 健全金融机构治理</h3>
+<p>
+ | 来源: http://www.linoon.com/blog/20260824-715.shtml
+</p>
+
+<h3>韶能股份投资成立纸品公司，注册资本3亿元</h3>
+<p>
+ | 来源: http://www.wheat.org.cn/blog/20260824-695.shtml
+</p>
+
+<h3>美股中概股盘前涨跌互现，盛美涨4%</h3>
+<p>
+ | 来源: http://lengku.shshuizu.com/blog/20260824-432.shtml
+</p>
+
+<h3>美股大型科技股盘前涨跌互现，亚马逊涨10%</h3>
+<p>
+ | 来源: http://www.hzmhong.com/blog/20260824-494.shtml
+</p>
+
+<h3>伊朗驻华大使：在军事威胁下，不准备与美对话</h3>
+<p>
+ | 来源: http://www.linksoon.cn/blog/20260824-150.shtml
+</p>
+
+<h3>*ST京化：预计2026年半年度扣非净利润2000万元到2600万元</h3>
+<p>
+ | 来源: http://www.jiujufilter.com/blog/20260824-263.shtml
+</p>
+
+<h3>申昊科技等成立新公司 含智能机器人销售业务</h3>
+<p>
+ | 来源: http://www.botaijx.com/blog/20260824-375.shtml
+</p>
+
+<h3>中广核宁德200兆瓦海上光伏项目全容量并网发电</h3>
+<p>
+ | 来源: http://www.d1cnc.com/blog/20260824-905.shtml
+</p>
+
+<h3>亚宝药业：拟以1亿元-2亿元回购公司股份</h3>
+<p>
+ | 来源: http://www.cnc.js.cn/blog/20260824-437.shtml
+</p>
+
+<h3>亚宝药业：2026年上半年净利润1.78亿元，同比增长1.83%</h3>
+<p>
+ | 来源: http://www.wzhcjx.cn/blog/20260824-433.shtml
+</p>
+
+<h3>西班牙称24小时内近4.9万名移民进入休达</h3>
+<p>
+ | 来源: http://www.hdhc.com.cn/blog/20260824-708.shtml
+</p>
+
+<h3>索尼：熊本工厂将从8月4日起分阶段复产</h3>
+<p>
+ | 来源: http://sh-peihe.com/blog/20260824-442.shtml
+</p>
+
+<h3>兴业银锡：收购FEG获接受要约股份7078.68万股，持股达34.57%</h3>
+<p>
+ | 来源: http://www.chuang-ao.cn/blog/20260824-503.shtml
+</p>
+
+<h3>博瑞医药：控股子公司获噻托溴铵吸入喷雾剂药品注册证书，为国内首家仿制药获批</h3>
+<p>
+ | 来源: http://www.boitown.com/blog/20260824-255.shtml
+</p>
+
+<h3>上大股份：2026年上半年净利润6146.32万元，同比增长2.78%</h3>
+<p>
+ | 来源: http://www.shunlijunjidian.com/blog/20260824-653.shtml
+</p>
+
+<h3>ST金鸿顺：实控人刘栩被证监会立案调查</h3>
+<p>
+ | 来源: http://www.fastchina.net/blog/20260824-184.shtml
+</p>
+
+<h3>秘鲁宪法法院撤销前总统乌马拉洗钱罪判决</h3>
+<p>
+ | 来源: http://www.imsilicon.com/blog/20260824-285.shtml
+</p>
+
+<h3>万丰奥威eVTOL圆满完成韩国海上公开飞行</h3>
+<p>
+ | 来源: http://www.hfrongke.com/blog/20260824-612.shtml
+</p>
+
+<h3>现货黄金失守4070美元/盎司</h3>
+<p>
+ | 来源: http://www.prodigy.net.cn/blog/20260824-871.shtml
+</p>
+
+<h3>治理“幽灵外卖” 网络餐饮领域创新应用电子证照核验</h3>
+<p>
+ | 来源: http://www.cangyishu.com/blog/20260824-288.shtml
+</p>
+
+<h3>外交部：一系列APEC相关活动紧锣密鼓举行</h3>
+<p>
+ | 来源: http://zhijiandaxi.com/blog/20260824-894.shtml
+</p>
+
+<h3>中贝通信等成立智能科技公司 含机器人业务</h3>
+<p>
+ | 来源: http://mhback.scminghua.cn/blog/20260824-204.shtml
+</p>
+
+<h3>顶固集创成立云算科技公司 含AI硬件销售业务</h3>
+<p>
+ | 来源: http://www.xiangyee.cn/blog/20260824-474.shtml
+</p>
+
+<h3>北斗卫星导航系统已全面完成在轨升级</h3>
+<p>
+ | 来源: http://www.sigehui.com/blog/20260824-490.shtml
+</p>
+
+<h3>“电报”联合创始人申请波黑公民身份遭拒</h3>
+<p>
+ | 来源: http://www.2738128.com/blog/20260824-312.shtml
+</p>
+
+<h3>外交部：中方反对任何形式的非法移民活动</h3>
+<p>
+ | 来源: http://www.carinway.com/blog/20260824-924.shtml
+</p>
+
+<h3>外交部：支持中国企业在市场基础上开展国际合作</h3>
+<p>
+ | 来源: http://www.cqsxjd.com/blog/20260824-365.shtml
+</p>
+
+<h3>外媒称特斯拉正在考虑剥离其中国业务，外交部：作为原则，我们一贯反对泛化国家安全概念，反对针对中国的歧视性行动</h3>
+<p>
+ | 来源: http://www.bjtcpip.com/blog/20260824-992.shtml
+</p>
+
+<h3>外交部：美方应立即停止以武力威胁古巴</h3>
+<p>
+ | 来源: http://www.yx-gas.com/blog/20260824-840.shtml
+</p>
+
+<h3>外交部回应中国青年数学家获得菲尔兹奖</h3>
+<p>
+ | 来源: http://www.szyidea.com/blog/20260824-184.shtml
+</p>
+
+<h3>有中国公民在巴基斯坦雪崩中失联？外交部：正在紧急核实了解</h3>
+<p>
+ | 来源: http://www.nylwpq.com/blog/20260824-447.shtml
+</p>
+
+<h3>商务部：延长对原产于加拿大的进口豌豆淀粉反倾销调查期限决定</h3>
+<p>
+ | 来源: http://tjmws.com/blog/20260824-647.shtml
+</p>
+
+<h3>美国国家公路交通安全管理局：福特正在美召回4.7万辆车</h3>
+<p>
+ | 来源: http://www.ctc-hn.com/blog/20260824-394.shtml
+</p>
+
+<h3>阳光股份等成立数字园区运营管理公司 含AI相关业务</h3>
+<p>
+ | 来源: http://chinajinxian.com/blog/20260824-669.shtml
+</p>
+
+<h3>日本正式设立国家情报局，外交部：日本为政者应深刻汲取历史教训，慎重行事</h3>
+<p>
+ | 来源: http://wap.youpin5g.com/blog/20260824-778.shtml
+</p>
+
+<h3>南方泵业：将积极关注海洋经济发展趋势和行业用泵国产替代需求</h3>
+<p>
+ | 来源: http://www.yowelt.com/blog/20260824-211.shtml
+</p>
+
+<h3>中核集团在海南成立新公司 含储能技术服务业务</h3>
+<p>
+ | 来源: http://www.mekia.cn/blog/20260824-213.shtml
+</p>
+
+<h3>ETF两市成交额报5902.05亿元，较昨日此时放量557.56亿元</h3>
+<p>
+ | 来源: http://www.huhangonline.com/blog/20260824-201.shtml
+</p>
+
+<h3>A股收评：创业板指高开回落涨3.06% 7月收获历史第二大跌幅单月跌23%</h3>
+<p>
+ | 来源: http://www.candor-co.com/blog/20260824-848.shtml
+</p>
+
+<h3>《求是》杂志发表习近平总书记重要文章《加快建设健康中国》</h3>
+<p>
+ | 来源: http://www.sarchee.com/blog/20260824-106.shtml
+</p>
+
+<h3>ETF收评：云计算ETF领涨9.86%，银行ETF领跌1.84%</h3>
+<p>
+ | 来源: http://www.dgyibiao.com/blog/20260824-526.shtml
+</p>
+
+<h3>国内汽、柴油价格7月31日起每吨分别上调685元、655元</h3>
+<p>
+ | 来源: http://www.zyqzjx.com/blog/20260824-243.shtml
+</p>
+
+<h3>沪深京三市成交额超2.5万亿元，较上日此时放量1779亿元</h3>
+<p>
+ | 来源: http://www.goldenflame.com.cn/blog/20260824-954.shtml
+</p>
+
+<h3>合肥：将继续坚持科技打头阵</h3>
+<p>
+ | 来源: http://www.wire-u.com/blog/20260824-589.shtml
+</p>
+
+<h3>德明利盘中翻绿</h3>
+<p>
+ | 来源: http://www.lottiesilicone.com/blog/20260824-992.shtml
+</p>
+
+<h3>南方东英回应市场疑虑：预计两倍做多海力士维持两倍杠杆</h3>
+<p>
+ | 来源: http://www.transvan.cn/blog/20260824-635.shtml
+</p>
+
+<h3>工信部：上半年规模以上电子信息制造业增加值同比增长14.8%</h3>
+<p>
+ | 来源: https://gitcode.com/ylscode/gitcode_knowledge/tree/main/CSDN%E5%8D%9A%E6%96%87%E5%A4%87%E4%BB%BD
+</p>
+
+<h3>铠侠表示，一季度NAND闪存单价环比上涨70%</h3>
+<p>
+ | 来源: http://www.petrol-coke.com/blog/20260824-788.shtml
+</p>
+
+<h3>外资周五净买入价值7.2万亿韩元的韩国综合股价指数股票，为有记录以来最大规模净买入</h3>
+<p>
+ | 来源: http://www.chinanewman.com/blog/20260824-558.shtml
+</p>
+
+<h3>大商所焦煤主力合约大跌5%</h3>
+<p>
+ | 来源: http://www.xl-2.com/blog/20260824-525.shtml
+</p>
+
+<h3>伊朗：摧毁三架美国战机 美军：没有飞机受损</h3>
+<p>
+ | 来源: http://dgyibiao.com/blog/20260824-830.shtml
+</p>
+
+<h3>阿里千问已在特斯拉车机内测</h3>
+<p>
+ | 来源: http://www.cqytcp.com/blog/20260824-242.shtml
+</p>
+
+<h3>小鹏汽车、智元机器人等将率先接入Seedance 2.5</h3>
+<p>
+ | 来源: http://www.weihuakeji.com/blog/20260824-437.shtml
+</p>
+
+<h3>电机板块持续走高</h3>
+<p>
+ | 来源: http://www.chaohealloy.com/blog/20260824-413.shtml
+</p>
+
+<h3>DeepSeek-V4-Flash正式版上线公测</h3>
+<p>
+ | 来源: http://www.shmoushe.com/blog/20260824-702.shtml
+</p>
+
+<h3>润六尺科技：华为相关业务团队到访公司 深化推进国产算力合作</h3>
+<p>
+ | 来源: http://www.xinyunchina.com/blog/20260824-735.shtml
+</p>
+
+<h3>国家发改委：下半年将多措并举推动经济持续向新向优向好发展</h3>
+<p>
+ | 来源: http://wheat.org.cn/blog/20260824-513.shtml
+</p>
+
+<h3>沪深京三市成交额超2万亿元，较上日此时放量2258亿元</h3>
+<p>
+ | 来源: http://.net.cn/blog/20260824-295.shtml
+</p>
+
+<h3>韩国综指涨幅扩大至18%</h3>
+<p>
+ | 来源: http://www.kaiyuair.com/blog/20260824-397.shtml
+</p>
+
+<h3>印度马哈拉施特拉邦一建筑倒塌 已致9人死亡</h3>
+<p>
+ | 来源: http://justop.vip/blog/20260824-687.shtml
+</p>
+
+<h3>SK海力士股价在首尔涨幅扩大至30%，触及涨停</h3>
+<p>
+ | 来源: http://www.021wfz.com/blog/20260824-133.shtml
+</p>
+
+<h3>字节跳动发布视频创作模型Seedance 2.5</h3>
+<p>
+ | 来源: http://www.lanba.net/blog/20260824-377.shtml
+</p>
+
+<h3>云知声：中标南宁及厦门两地公共市级平台项目，合计签约金额总计超人民币2000万元</h3>
+<p>
+ | 来源: http://www.xc-electric.cn/blog/20260824-380.shtml
+</p>
+
+<h3>晶泰科技发布XtalPi Science，发起“科学智能开放生态联盟”</h3>
+<p>
+ | 来源: http://www.tjztzt.com/blog/20260824-969.shtml
+</p>
+
+<h3>美“猎鹰9”火箭第二级残骸预计将撞击月球</h3>
+<p>
+ | 来源: http://szdiyier.com/blog/20260824-444.shtml
+</p>
+
+<h3>莱茵河荷兰段水位降至历史最低</h3>
+<p>
+ | 来源: http://thuni-h.com/blog/20260824-136.shtml
+</p>
+
+<h3>恒隆集团：2026年上半年股东应占纯利7.46亿港元</h3>
+<p>
+ | 来源: http://chn.chinese-green.com/blog/20260824-485.shtml
+</p>
+
+<h3>无视欧足联等抵制 国际足联称将继续推进商业计划</h3>
+<p>
+ | 来源: http://www.lonzvalve.com/blog/20260824-993.shtml
+</p>
+
+<h3>贵州省贵阳市委常委、秘书长刘本立接受审查调查</h3>
+<p>
+ | 来源: https://blog.csdn.net/seoppg/article/details/148493454
+</p>
+
+<h3>7月31日午间公告一览：瑞丰新材完成工商变更登记并换发营业执照</h3>
+<p>
+ | 来源: http://www.hw-dz.com/blog/20260824-163.shtml
+</p>
+
+<h3>习近平在中共中央政治局第二十七次集体学习时强调 强化政治引领 深化创新发展 高质量推进国防和军队现代化</h3>
+<p>
+ | 来源: http://progressile.com/blog/20260824-970.shtml
+</p>
+
+<h3>港股午评：恒生指数跌0.11%，恒生科技指数涨0.7%</h3>
+<p>
+ | 来源: http://gxzyzwlw.com/blog/20260824-761.shtml
+</p>
+
+<h3>美联储年内加息？景顺首席全球市场策略师：即便加也是一次性，明年转向降息</h3>
+<p>
+ | 来源: http://www.sypdsl.com/blog/20260824-704.shtml
+</p>
+
+<h3>江苏先导首台12寸高端晶圆级光学磁控溅射设备正式交付</h3>
+<p>
+ | 来源: http://sh-jingweilaw.com/blog/20260824-916.shtml
+</p>
+
+<h3>12条中日航线7月取消全部航班，1195个赴日航班取消</h3>
+<p>
+ | 来源: http://www.hantec.com.cn/blog/20260824-707.shtml
+</p>
+
+<h3>高能环境投资成立半导体材料新公司</h3>
+<p>
+ | 来源: http://www.intransing.com/blog/20260824-339.shtml
+</p>
+
+<h3>A股午评：创业板指高开震荡涨5.04% AI应用方向全面走高</h3>
+<p>
+ | 来源: http://www.newant.com.cn/blog/20260824-673.shtml
+</p>
+
+<h3>期货午评：贵金属板块领涨期市，碳酸锂暴跌超3%失守14万关口</h3>
+<p>
+ | 来源: https://caidaome.com/
+</p>
+
+<h3>ETF两市成交额报3903.65亿元，较昨日此时放量925.49亿元</h3>
+<p>
+ | 来源: http://www.etmval.com/blog/20260824-654.shtml
+</p>
