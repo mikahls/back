@@ -1,0 +1,502 @@
+<h1> AI Builders Digest 今日热点快报</h1>
+<p><strong>2026年08月25日 21时48分33秒(UTC+8)</strong></p>
+<hr>
+<h3>付炳锋：期待汽车产业高质量发展 不要把好牌打烂</h3>
+<p>
+ | 来源: http://www.kaiyuair.com/blog/20260825-214.shtml
+</p>
+
+<h3>拨动用户未说出口的心弦：蔚来ES8大五座的高端产品哲学</h3>
+<p>
+ | 来源: http://bothcapital.com/blog/20260825-944.shtml
+</p>
+
+<h3>MONA L03：小鹏大航海时代的年轻船票</h3>
+<p>
+ | 来源: http://wap.youpin5g.com/blog/20260825-390.shtml
+</p>
+
+<h3>对话陈晓波：体面活着，福特不卷价格卷什么？</h3>
+<p>
+ | 来源: http://www.sh-pheal.com/blog/20260825-178.shtml
+</p>
+
+<h3>月销9万的零跑很难再低调了 徐军：不怕被盯上</h3>
+<p>
+ | 来源: http://wheat.org.cn/blog/20260825-284.shtml
+</p>
+
+<h3>安睿轲:奢华不是'科技'的堆砌 把擅长的事做到极致</h3>
+<p>
+ | 来源: http://www.zhenguangxc.com/blog/20260825-418.shtml
+</p>
+
+<h3>李斌：车市迎来四大新发展阶段 蔚来坚守技术与补能双轮驱动</h3>
+<p>
+ | 来源: http://www.aiteou.com/blog/20260825-450.shtml
+</p>
+
+<h3>赛力斯张正萍：以“五高”标准 探索新能源汽车价值向上之路</h3>
+<p>
+ | 来源: http://www.cm5g.com/blog/20260825-497.shtml
+</p>
+
+<h3>零跑徐军：告别参数内卷 以用户为中心踏稳产业进阶之路</h3>
+<p>
+ | 来源: http://www.junaochina.com/blog/20260825-642.shtml
+</p>
+
+<h3>告别内卷深耕价值 阿维塔王辉：中国汽车要做独一无二的自己</h3>
+<p>
+ | 来源: http://shlanba.com/blog/20260825-188.shtml
+</p>
+
+<h3>以AI驱动创新 奔驰庄睦德解读豪华车企本土化发展之路</h3>
+<p>
+ | 来源: http://www.imsilicon.com/blog/20260825-813.shtml
+</p>
+
+<h3>价值重构定义未来 江汽以高端突破谋全局 携手华为奔赴新征程</h3>
+<p>
+ | 来源: http://tlxmbc.com/blog/20260825-301.shtml
+</p>
+
+<h3>直面无人区 李传海：四大路径驱动吉利全面向上</h3>
+<p>
+ | 来源: http://www.yf-syc.com/blog/20260825-274.shtml
+</p>
+
+<h3>何小鹏：别人说我"不务正业" 我说你"看唔到"</h3>
+<p>
+ | 来源: http://www.cannice.com/blog/20260825-747.shtml
+</p>
+
+<h3>要做“新公路之王”，AUDI的坚守与新解</h3>
+<p>
+ | 来源: http://www.weihuakeji.com/blog/20260825-870.shtml
+</p>
+
+<h3>对话北京现代雷宏录：IONIQ要在全球品质之上融入中国智慧</h3>
+<p>
+ | 来源: http://www.dgjunsen.com/blog/20260825-929.shtml
+</p>
+
+<h3>上市半小时狂揽7000单 上汽大众的“不降价”策略 赌对了</h3>
+<p>
+ | 来源: https://blog.csdn.net/seoppg/article/details/148493454
+</p>
+
+<h3>奥迪的“双品牌”战略，能否撑起下一个十年？</h3>
+<p>
+ | 来源: http://changzejiansuji.com/blog/20260825-921.shtml
+</p>
+
+<h3>MG陈萃:2026款MG4不只是"听劝" 我们要做细分市场的"加法人"</h3>
+<p>
+ | 来源: http://www.changzejiansuji.com/blog/20260825-300.shtml
+</p>
+
+<h3>“新公路之王”极氪8X 攻入BBA腹地的代价与价值</h3>
+<p>
+ | 来源: http://shmoushe.com/blog/20260825-532.shtml
+</p>
+
+<h3>5年20款新50万辆野心:现代汽车在内卷中寻找"确定性"</h3>
+<p>
+ | 来源: http://www.aktmembrane.com/blog/20260825-739.shtml
+</p>
+
+<h3>北汽新能源王艾强：扩充产品矩阵 享界下半年将推全新SUV和MP</h3>
+<p>
+ | 来源: http://ceshi.antu.com.cn/blog/20260825-619.shtml
+</p>
+
+<h3>不那么小众也可以 smart的路会越走越宽</h3>
+<p>
+ | 来源: http://www.linksoon.cn/blog/20260825-126.shtml
+</p>
+
+<h3>从互联网车到AI原生:荣威用了20年参透了新智能</h3>
+<p>
+ | 来源: http://www.wheat.org.cn/blog/20260825-709.shtml
+</p>
+
+<h3>在不确定中寻找确定性：大众汽车的中国解法</h3>
+<p>
+ | 来源: http://www.d1cnc.com/blog/20260825-132.shtml
+</p>
+
+<h3>体育营销31年 沃尔沃为何如此坚持</h3>
+<p>
+ | 来源: http://www.shunlijunjidian.com/blog/20260825-706.shtml
+</p>
+
+<h3>沈劭劼：转型移动物理AI公司，卓驭要做基础设施</h3>
+<p>
+ | 来源: http://www.lonzvalve.com/blog/20260825-252.shtml
+</p>
+
+<h3>杨宇欣：加大L4投入 无人值守场景更需要本土芯片</h3>
+<p>
+ | 来源: http://www.xinyunchina.com/blog/20260825-144.shtml
+</p>
+
+<h3>周光：物理AI上半场是自动驾驶，下半场是厨房</h3>
+<p>
+ | 来源: http://www.gdrongda.com/blog/20260825-849.shtml
+</p>
+
+<h3>李斌呼吁行业降本千亿 蔚来“精算”长期主义</h3>
+<p>
+ | 来源: http://www.huaiheedu.com/blog/20260825-136.shtml
+</p>
+
+<h3>从盈利到旗舰 对蔚来ES9的三个疑问</h3>
+<p>
+ | 来源: http://www.zyqzjx.com/blog/20260825-964.shtml
+</p>
+
+<h3>文飞掌舵，给神行者带来了什么？</h3>
+<p>
+ | 来源: http://www.tjztzt.com/blog/20260825-216.shtml
+</p>
+
+<h3>零跑朱江明:中国容不下17家车企，时刻要有危机感</h3>
+<p>
+ | 来源: http://www.sansontech.com/blog/20260825-983.shtml
+</p>
+
+<h3>开启ID. ERA新纪元，上汽大众要做增程的新王</h3>
+<p>
+ | 来源: http://www.jsxdaf.com/blog/20260825-545.shtml
+</p>
+
+<h3>分传统豪华的蛋糕，极氪8X凭什么？</h3>
+<p>
+ | 来源: https://gitcode.com/ylscode/gitcode_knowledge/tree/main/CSDN%E5%8D%9A%E6%96%87%E5%A4%87%E4%BB%BD
+</p>
+
+<h3>大众汽车在华战略提速 以本土化创新迎战电动化下半场</h3>
+<p>
+ | 来源: http://www.hantec.com.cn/blog/20260825-990.shtml
+</p>
+
+<h3>张文宏：长寿不是躺着活，4件事趁早做</h3>
+<p>
+ | 来源: http://www.yx-gas.com/blog/20260825-396.shtml
+</p>
+
+<h3>用筋膜枪别乱突突，这些部位千万不能打</h3>
+<p>
+ | 来源: http://tgtg.yanmochina.com/blog/20260825-783.shtml
+</p>
+
+<h3>为什么压力越大越想吃甜食？</h3>
+<p>
+ | 来源: http://en.boitown.com/blog/20260825-637.shtml
+</p>
+
+<h3>每周吃够200克这种肉，糖尿病风险降13%</h3>
+<p>
+ | 来源: http://fenfa2.xizue.com/blog/20260825-641.shtml
+</p>
+
+<h3>•吃对这4样安稳过秋天</h3>
+<p>
+ | 来源: http://www.sf304.cc/blog/20260825-136.shtml
+</p>
+
+<h3>•6件小事帮你快速缓解焦虑</h3>
+<p>
+ | 来源: http://www.qiyitech.cn/blog/20260825-221.shtml
+</p>
+
+<h3>•夏天当心这件事</h3>
+<p>
+ | 来源: http://www.kayin.com.cn/blog/20260825-404.shtml
+</p>
+
+<h3>女孩几岁月经？7个青春期月经真相</h3>
+<p>
+ | 来源: http://www.lanba.net/blog/20260825-171.shtml
+</p>
+
+<h3>孩子有脊柱侧弯，还能正常运动吗？</h3>
+<p>
+ | 来源: http://www.xc-electric.cn/blog/20260825-541.shtml
+</p>
+
+<h3>“矫正神器”真能治好脊柱侧弯吗？</h3>
+<p>
+ | 来源: http://hanlonggf.com/blog/20260825-466.shtml
+</p>
+
+<h3>脊柱侧弯到什么程度，需要戴支具？</h3>
+<p>
+ | 来源: http://www.yowelt.com/blog/20260825-636.shtml
+</p>
+
+<h3>这种脊柱侧弯，运动能救！</h3>
+<p>
+ | 来源: http://www.nankang.com.cn/blog/20260825-834.shtml
+</p>
+
+<h3>女孩更易侧弯？几类孩子风险偏高</h3>
+<p>
+ | 来源: http://www.goldenflame.com.cn/blog/20260825-664.shtml
+</p>
+
+<h3>青春期脊柱侧弯高发！家长注意这些</h3>
+<p>
+ | 来源: http://hastelloy.com.cn/blog/20260825-632.shtml
+</p>
+
+<h3>专家解答青少年脊柱侧弯七大问题</h3>
+<p>
+ | 来源: http://www.bjszxc.com/blog/20260825-796.shtml
+</p>
+
+<h3>孩子高低肩，是不是脊柱侧弯了？！</h3>
+<p>
+ | 来源: http://www.dlsccs.com/blog/20260825-352.shtml
+</p>
+
+<h3>身子歪≠脊柱侧弯，侧弯发病率没变</h3>
+<p>
+ | 来源: http://www.etmval.com/blog/20260825-922.shtml
+</p>
+
+<h3>心血管专家破解猝死八大谣言</h3>
+<p>
+ | 来源: http://m.migun.net.cn/blog/20260825-182.shtml
+</p>
+
+<h3>咸汤圆比甜汤圆更健康？别被误导了</h3>
+<p>
+ | 来源: http://www.zcznled.com/blog/20260825-766.shtml
+</p>
+
+<h3>【健康关注】：7月新增新冠确诊52.2万例，死亡1例</h3>
+<p>
+ | 来源: http://www.hkcxwl.com/blog/20260825-679.shtml
+</p>
+
+<h3>【夏日防晒】：防晒霜涂得勤，眼睛却在“裸奔”？</h3>
+<p>
+ | 来源: http://jsxfgroup.com/blog/20260825-498.shtml
+</p>
+
+<h3>【营养补充】：突然走红的“镁”，真是助眠神器？</h3>
+<p>
+ | 来源: http://wap.weihuakeji.com/blog/20260825-895.shtml
+</p>
+
+<h3>【睡眠健康】：不吃炸鸡9岁女孩竟性早熟!医生揪出真凶</h3>
+<p>
+ | 来源: http://www.wire-u.com/blog/20260825-279.shtml
+</p>
+
+<h3>【用药安全】：榴莲+白酒=ICU？那些看不见的头孢配酒</h3>
+<p>
+ | 来源: http://www.bjtcpip.com/blog/20260825-806.shtml
+</p>
+
+<h3>影响上亿女性的疾病正式更名</h3>
+<p>
+ | 来源: http://www.lottiesilicone.com/blog/20260825-920.shtml
+</p>
+
+<h3>幼儿园视力报告，别踩5个坑</h3>
+<p>
+ | 来源: http://sh-pheal.com/blog/20260825-388.shtml
+</p>
+
+<h3>久坐躺平要小心！年轻人易诱发下肢深静脉血栓</h3>
+<p>
+ | 来源: http://chinajinxian.com/blog/20260825-412.shtml
+</p>
+
+<h3>男生到年纪就逃不过秃顶？靠谱防脱方案来了</h3>
+<p>
+ | 来源: http://www.bothcapital.com/blog/20260825-366.shtml
+</p>
+
+<h3>查出肾结石先别慌，大小位置不同，治疗方式天差地别</h3>
+<p>
+ | 来源: http://www.nylwpq.com/blog/20260825-954.shtml
+</p>
+
+<h3>眼病早期无症状，这六类人群，务必定期检查眼部</h3>
+<p>
+ | 来源: http://www.finermed.com/blog/20260825-984.shtml
+</p>
+
+<h3>豆包日接2000万问诊，超全国医院两倍</h3>
+<p>
+ | 来源: http://ceshi.zhenguangxc.com/blog/20260825-463.shtml
+</p>
+
+<h3>暗访牛蛙产业链：从养殖到餐桌全线失守</h3>
+<p>
+ | 来源: http://sigehui.com/blog/20260825-952.shtml
+</p>
+
+<h3>小时候奶香，40岁后老人味——源于它？</h3>
+<p>
+ | 来源: http://www.2738128.com/blog/20260825-746.shtml
+</p>
+
+<h3>“牛舔天”还会持续多久？别急，快了！</h3>
+<p>
+ | 来源: http://www.mingdemuye.com/blog/20260825-225.shtml
+</p>
+
+<h3>毒性中药材销往全国，亳州成立调查组</h3>
+<p>
+ | 来源: http://www.sh-peihe.com/blog/20260825-269.shtml
+</p>
+
+<h3>7天离世16个月才曝光,女童基因编辑致死</h3>
+<p>
+ | 来源: http://hygl.sxsslgcxh.com/blog/20260825-780.shtml
+</p>
+
+<h3>不同位置的背痛，隐藏了哪些疾病信号？</h3>
+<p>
+ | 来源: http://www.cnxinghuo.com/blog/20260825-922.shtml
+</p>
+
+<h3>每个月这样吃5天，3个月身体年轻2.5岁</h3>
+<p>
+ | 来源: http://hengaodebj.com/blog/20260825-521.shtml
+</p>
+
+<h3>蚊子不认血型，这几类人才是"吸蚊体质"</h3>
+<p>
+ | 来源: http://www.qiangyang.com.cn/blog/20260825-345.shtml
+</p>
+
+<h3>最能解决焦虑的小动作，只有 3 个字</h3>
+<p>
+ | 来源: http://www.chinajinxian.com/blog/20260825-917.shtml
+</p>
+
+<h3>揭秘！中风为何总在激动、用力时到来？</h3>
+<p>
+ | 来源: http://www.021wfz.com/blog/20260825-954.shtml
+</p>
+
+<h3>抗衰主食找到了 吃了一个月身体年轻4岁</h3>
+<p>
+ | 来源: http://hnjtyjz.com/blog/20260825-936.shtml
+</p>
+
+<h3>中风偏爱这些人！快帮家人逐条自查</h3>
+<p>
+ | 来源: http://www.saner.cn/blog/20260825-110.shtml
+</p>
+
+<h3>比砒霜还毒！一盘凉拌黄瓜致男子肝衰竭</h3>
+<p>
+ | 来源: http://www.cqytcp.com/blog/20260825-384.shtml
+</p>
+
+<h3>天旋地转狂吐？可能是耳朵里的石头掉了</h3>
+<p>
+ | 来源: http://fastchina.net/blog/20260825-327.shtml
+</p>
+
+<h3>防蓝光、补叶黄素，真不如直接把字调大</h3>
+<p>
+ | 来源: http://www.fastchina.net/blog/20260825-722.shtml
+</p>
+
+<h3>血脂高别光吃药 这种营养降低死亡风险</h3>
+<p>
+ | 来源: http://hawzwwl.cn/blog/20260825-816.shtml
+</p>
+
+<h3>住个院天不亮就被叫醒 早起之争引热议</h3>
+<p>
+ | 来源: http://zhenguangxc.com/blog/20260825-869.shtml
+</p>
+
+<h3>夏天出汗，这6种气味当心是疾病信号！</h3>
+<p>
+ | 来源: https://caidaome.com/
+</p>
+
+<h3>每天摇胯100 次，骨盆正了，双腿细又直</h3>
+<p>
+ | 来源: http://m.baidu.com/blog/20260825-843.shtml
+</p>
+
+<h3>“网红”鞋子竟导致感染！已有多人中招</h3>
+<p>
+ | 来源: http://www.airfast.com/blog/20260825-481.shtml
+</p>
+
+<h3>断骨增高灰产链：每拉一人提成1.5万元</h3>
+<p>
+ | 来源: http://www.alnet.cn/blog/20260825-381.shtml
+</p>
+
+<h3>中疾控：鼻病毒检出率居呼吸道感染首位</h3>
+<p>
+ | 来源: http://www.petrol-coke.com/blog/20260825-500.shtml
+</p>
+
+<h3>男子头晕信AI诊断 延误三天后查出脑梗</h3>
+<p>
+ | 来源: http://www.shrenzhong.cn/blog/20260825-804.shtml
+</p>
+
+<h3>冬瓜成伴睡神器？ 专家：吃比抱着管用</h3>
+<p>
+ | 来源: http://www.scminghua.cn/blog/20260825-139.shtml
+</p>
+
+<h3>纸尿裤甲酰胺风波 国家级调查组成立</h3>
+<p>
+ | 来源: http://tjmws.com/blog/20260825-383.shtml
+</p>
+
+<h3>夏至到！做好4件小事，养出夏日好状态</h3>
+<p>
+ | 来源: http://www.mhui168.com/blog/20260825-654.shtml
+</p>
+
+<h3>冷藏主食热量更低？肠胃不好谨慎尝试</h3>
+<p>
+ | 来源: http://www.xycyzl.com/blog/20260825-809.shtml
+</p>
+
+<h3>警惕埃博拉境外输入！重点管控两类人群</h3>
+<p>
+ | 来源: http://zhijiandaxi.com/blog/20260825-988.shtml
+</p>
+
+<h3>“90后”，已成为抗衰主力军</h3>
+<p>
+ | 来源: http://www.zyl100.com/blog/20260825-609.shtml
+</p>
+
+<h3>别带着坏情绪睡觉，身体根本修复不了</h3>
+<p>
+ | 来源: http://sz.sawenow.com/blog/20260825-536.shtml
+</p>
+
+<h3>不花一分钱，3分钟居家自测眼底病！</h3>
+<p>
+ | 来源: http://www.muyerunhuayou.com/blog/20260825-707.shtml
+</p>
+
+<h3>运动中出现这7种危险信号，立刻停下！</h3>
+<p>
+ | 来源: http://www.dzlg.net/blog/20260825-568.shtml
+</p>
+
+<h3>降血压最好的4种运动 坚持练血压不飙升</h3>
+<p>
+ | 来源: http://thuni-h.com/blog/20260825-367.shtml
+</p>
