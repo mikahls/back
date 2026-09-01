@@ -1,0 +1,352 @@
+<h1> AI Builders Digest 今日热点快报</h1>
+<p><strong>2026年08月31日 18时28分55秒(UTC+8)</strong></p>
+<hr>
+<h3>未来复合年增长率达5.1%！啤酒市场动能何来?</h3>
+<p>
+ | 来源: http://www.sdbzjs.cn/blog/20260831-217.shtml
+</p>
+
+<h3>“进五环”后的光良酒，卖得动吗？</h3>
+<p>
+ | 来源: http://www.szyidea.com/blog/20260831-546.shtml
+</p>
+
+<h3>夜郎古与郎酒商标纠纷达成整体和解</h3>
+<p>
+ | 来源: http://www.abcd6.net/blog/20260831-154.shtml
+</p>
+
+<h3>盼望2025，啤酒行业的七个关键问题</h3>
+<p>
+ | 来源: http://www.q345egg.cn/blog/20260831-692.shtml
+</p>
+
+<h3>有机、天然、可持续······能给葡萄酒带来多少附加值？</h3>
+<p>
+ | 来源: http://www.wsclyq.com/blog/20260831-465.shtml
+</p>
+
+<h3>红染酱！王朝酒业携手国威成立合资公司布局酱酒</h3>
+<p>
+ | 来源: http://www.fastchina.net/blog/20260831-673.shtml
+</p>
+
+<h3>汾酒冬酿进行时——酿造篇</h3>
+<p>
+ | 来源: http://www.fuosgao.com/blog/20260831-678.shtml
+</p>
+
+<h3>国际调酒师协会会长Bruno Santos：让调酒师打开白酒走向世界的大门</h3>
+<p>
+ | 来源: http://erp.scminghua.cn/blog/20260831-592.shtml
+</p>
+
+<h3>当“令狐冲”遇上“拎壶冲”，能冲冲冲起来吗？</h3>
+<p>
+ | 来源: http://m.migun.net.cn/blog/20260831-830.shtml
+</p>
+
+<h3>高端烈酒走势放缓？一些新动向值得关注</h3>
+<p>
+ | 来源: http://www.sdxxggzz.com/blog/20260831-172.shtml
+</p>
+
+<h3>从搪瓷盆蛋糕火出圈，看酒业的再创新</h3>
+<p>
+ | 来源: http://www.zjcobon.com/blog/20260831-535.shtml
+</p>
+
+<h3>白酒经销商“压力山大”，“开门红”打款有心无力</h3>
+<p>
+ | 来源: http://www.lzfx.com.cn/blog/20260831-431.shtml
+</p>
+
+<h3>“泸州老窖式”良性厂商关系背后：稳健控货、动销为王</h3>
+<p>
+ | 来源: http://www.cm5g.com/blog/20260831-225.shtml
+</p>
+
+<h3>山东白酒市场最新调研：规模降至400亿，11家酒企回款超10亿，酱香占比增至39%</h3>
+<p>
+ | 来源: http://www.sdxxlxg.cn/blog/20260831-642.shtml
+</p>
+
+<h3>中国酒类流通协会2024年放心酒工程工作会议成功召开</h3>
+<p>
+ | 来源: http://www.qiyitech.cn/blog/20260831-775.shtml
+</p>
+
+<h3>中粮科技未能如期出售白酒业务，“重新分班”真就这么难？</h3>
+<p>
+ | 来源: http://www.sdxxyg.cn/blog/20260831-447.shtml
+</p>
+
+<h3>年轻人对葡萄酒真的不“感冒”？</h3>
+<p>
+ | 来源: http://www.sf304.cc/blog/20260831-904.shtml
+</p>
+
+<h3>光瓶酒动销调研：多地双位数增长，玻汾、尖庄引领主销价格向50+升级</h3>
+<p>
+ | 来源: http://www.cxren.net/blog/20260831-481.shtml
+</p>
+
+<h3>我们为什么开始怀念老的白酒广告？</h3>
+<p>
+ | 来源: http://shmoushe.com/blog/20260831-157.shtml
+</p>
+
+<h3>最后一个月，酒业人怎么过年关？</h3>
+<p>
+ | 来源: http://www.sdxxtp.cn/blog/20260831-102.shtml
+</p>
+
+<h3>“一口三香”的中式精酿悄悄火了，给酒业带来什么启示？</h3>
+<p>
+ | 来源: http://www.mingdemuye.com/blog/20260831-705.shtml
+</p>
+
+<h3>仅用中国白酒的国际调酒大赛即将开赛</h3>
+<p>
+ | 来源: http://www.cxhy.com.cn/blog/20260831-768.shtml
+</p>
+
+<h3>“回味&品味”酒业传承与创新榜发布｜近60位鉴评专家见证</h3>
+<p>
+ | 来源: http://www.hdhc.com.cn/blog/20260831-967.shtml
+</p>
+
+<h3>这届双11，成了白酒界的315</h3>
+<p>
+ | 来源: http://www.aktmembrane.com/blog/20260831-488.shtml
+</p>
+
+<h3>六大指导意见！贵州推动“卖酒”方式转变</h3>
+<p>
+ | 来源: http://www.sdxtqj.cn/blog/20260831-454.shtml
+</p>
+
+<h3>9694！珍酒李渡的位次密码｜财报“含金量”①</h3>
+<p>
+ | 来源: http://mktiyu.com/blog/20260831-900.shtml
+</p>
+
+<h3>抛开焦虑情绪，如何看茅台酒批价“震荡”？（附三年价格波动图）</h3>
+<p>
+ | 来源: http://sigehui.com/blog/20260831-794.shtml
+</p>
+
+<h3>茅台跌了！回收商：“这次是暴跌 不只是因为淡季”</h3>
+<p>
+ | 来源: http://www.zrxiaodi.cn/blog/20260831-402.shtml
+</p>
+
+<h3>频繁布局酒旅项目 酒企拥抱C端用户</h3>
+<p>
+ | 来源: http://www.nbautom.com/blog/20260831-172.shtml
+</p>
+
+<h3>酒旅融合风正盛，贵州产区抢先占领高地！</h3>
+<p>
+ | 来源: http://www.sdxydjs.cn/blog/20260831-160.shtml
+</p>
+
+<h3>数智化破壁，白酒行业加“数”奔跑</h3>
+<p>
+ | 来源: http://www.sdnljscl.com/blog/20260831-979.shtml
+</p>
+
+<h3>巽風375是“茅台生态”破坏者吗？</h3>
+<p>
+ | 来源: http://www.jszhongxun.cn/blog/20260831-979.shtml
+</p>
+
+<h3>一线调研：茅台成交价2700元以上，屯酒者增多，五一或上涨</h3>
+<p>
+ | 来源: https://blog.csdn.net/seoppg/article/details/148493454
+</p>
+
+<h3>终端稳、长期看好、茅台酒价格浮动系正常</h3>
+<p>
+ | 来源: http://www.sxrxygt.com/blog/20260831-435.shtml
+</p>
+
+<h3>茅台酒终端动销良好，一季度开门红信心十足</h3>
+<p>
+ | 来源: http://www.jsxdaf.com/blog/20260831-763.shtml
+</p>
+
+<h3>喜力将关闭新加坡群岛啤酒厂</h3>
+<p>
+ | 来源: http://www.hbdz-sz.com/blog/20260831-420.shtml
+</p>
+
+<h3>舍得天子呼产品价格上调</h3>
+<p>
+ | 来源: http://www.jiaxinzhiyuan.com/blog/20260831-955.shtml
+</p>
+
+<h3>爆火的掼蛋，白酒营销王炸？</h3>
+<p>
+ | 来源: http://www.lcrljs.com/blog/20260831-405.shtml
+</p>
+
+<h3>2024年白酒市场机会在哪？这9个新动向值得关注</h3>
+<p>
+ | 来源: http://www.dzlg.net/blog/20260831-677.shtml
+</p>
+
+<h3>两年新增16起投资，跨界资本为何重注国产威士忌？</h3>
+<p>
+ | 来源: http://www.lottiesilicone.com/blog/20260831-411.shtml
+</p>
+
+<h3>揭秘中红发展规划与优势产品，百年郡王府见证国货匠心！</h3>
+<p>
+ | 来源: http://www.ats6688.cn/blog/20260831-605.shtml
+</p>
+
+<h3>官宣185万澳元支持计划，南澳州政府全力启动澳中葡萄酒贸易合作！</h3>
+<p>
+ | 来源: http://www.sdlpznzb.cn/blog/20260831-564.shtml
+</p>
+
+<h3>飞天茅台价格跌破2600元/瓶？白酒分析师：淡季需求有减少是正常现象</h3>
+<p>
+ | 来源: http://www.djmold.cn/blog/20260831-653.shtml
+</p>
+
+<h3>3月全球威士忌二级市场：大摩指数下滑8%、格兰菲迪指数跌至十年来最低点</h3>
+<p>
+ | 来源: http://www.zongmeng123.com/blog/20260831-720.shtml
+</p>
+
+<h3>绣林玉液：每滴都是真实年份，每口都有时间的味道</h3>
+<p>
+ | 来源: http://www.gyssdx.com/blog/20260831-600.shtml
+</p>
+
+<h3>揭秘新疆酒：葡萄酒瞄准1000亿，白酒啤酒猛攻全国化</h3>
+<p>
+ | 来源: http://www.sdlx-led.com/blog/20260831-362.shtml
+</p>
+
+<h3>贵州茅台市值进击战</h3>
+<p>
+ | 来源: http://www.zj-creat.com/blog/20260831-266.shtml
+</p>
+
+<h3>涨价！订单激增！澳大利亚葡萄酒将“王者归来”？</h3>
+<p>
+ | 来源: http://www.zgywffg.com/blog/20260831-283.shtml
+</p>
+
+<h3>开启“酿造生活”视角，酒旅融合走向进化</h3>
+<p>
+ | 来源: http://www.sarchee.com/blog/20260831-935.shtml
+</p>
+
+<h3>小红书猛攻新营销，得物瞄准10亿目标，年轻人的酒水生意怎么做？</h3>
+<p>
+ | 来源: http://www.bzdlqj.com/blog/20260831-842.shtml
+</p>
+
+<h3>上海警方披露系列假酒案细节：荒废鱼塘养殖场造“轩尼诗”，“飞天茅台”买三送一</h3>
+<p>
+ | 来源: http://www.tjsatou.com/blog/20260831-213.shtml
+</p>
+
+<h3>头部白酒公司历史分红“比拼”：茅台累计分红超2000亿数额最大、泸州老窖比例高</h3>
+<p>
+ | 来源: http://www.guangcizdi.com/blog/20260831-329.shtml
+</p>
+
+<h3>白酒线上化崛起</h3>
+<p>
+ | 来源: http://www.sdgytg.cn/blog/20260831-935.shtml
+</p>
+
+<h3>区域酒企如何突围千元价格带？李渡、武陵、石花的To C启示录</h3>
+<p>
+ | 来源: http://www.wzjh9999.com/blog/20260831-703.shtml
+</p>
+
+<h3>广告酒气冲天，酒市不温不火，为什么？</h3>
+<p>
+ | 来源: http://www.lwttf.com/blog/20260831-570.shtml
+</p>
+
+<h3>拆解快手1-2月酒水月报：300元以下价位段贡献最大，临沂唐山尔滨沈阳入围TOP5</h3>
+<p>
+ | 来源: http://www.sdhxgtgs.cn/blog/20260831-216.shtml
+</p>
+
+<h3>1-2月快手酒水报告：2000余家品牌推广，消费者年轻化趋势明显</h3>
+<p>
+ | 来源: http://www.sdxsdqgs.cn/blog/20260831-185.shtml
+</p>
+
+<h3>她们是“酒二代”，是海归，也是新一代“掌门人”</h3>
+<p>
+ | 来源: http://www.lanba.net/blog/20260831-703.shtml
+</p>
+
+<h3>意大利葡萄酒被五大出口市场闪了一下腰</h3>
+<p>
+ | 来源: http://www.lcdljs.com/blog/20260831-119.shtml
+</p>
+
+<h3>百富门2024财年前三季度：净销售额32.14亿美元，日本市场几乎“归零”</h3>
+<p>
+ | 来源: http://www.hoseprofessional.cn/blog/20260831-623.shtml
+</p>
+
+<h3>20家白酒A股2月盘点：迎驾贡酒涨27%居第一 贵州茅台涨5.61%</h3>
+<p>
+ | 来源: http://www.airfast.com/blog/20260831-376.shtml
+</p>
+
+<h3>C+，白酒下一个核心价格带</h3>
+<p>
+ | 来源: http://www.sddwjlc.com/blog/20260831-342.shtml
+</p>
+
+<h3>被留置的刘晓波，与困于威士忌的微醺事业</h3>
+<p>
+ | 来源: http://www.wxksx.com/blog/20260831-361.shtml
+</p>
+
+<h3>2024，中小酒商如何解决这些“顽疾”？</h3>
+<p>
+ | 来源: http://www.cqrkgs.com/blog/20260831-129.shtml
+</p>
+
+<h3>电商大混战：百亿狂补贴，直播GMV冲500亿+，酒企该如何布局？</h3>
+<p>
+ | 来源: http://www.sdhcqj.com/blog/20260831-474.shtml
+</p>
+
+<h3>中高线光瓶酒市场运作，这“三大导向”是关键</h3>
+<p>
+ | 来源: http://www.sdgytg.cn/blog/20260831-764.shtml
+</p>
+
+<h3>第八代五粮液涨价追踪：渠道利润增厚、批零价格上涨、春节档流速优</h3>
+<p>
+ | 来源: http://www.hocbtech.com/blog/20260831-897.shtml
+</p>
+
+<h3>8省酒商谈春节：市场消费分化、渠道谨慎，量价博弈持续|</h3>
+<p>
+ | 来源: http://www.sdxssxfhcj.com/blog/20260831-917.shtml
+</p>
+
+<h3>宾三得利公布去年部分业绩数据：净销售额增长7%，但中国市场充满挑战</h3>
+<p>
+ | 来源: http://www.lcsjsgg.cn/blog/20260831-425.shtml
+</p>
+
+<h3>白酒“霸屏”春晚</h3>
+<p>
+ | 来源: http://www.sdlx-led.com/blog/20260831-164.shtml
+</p>
