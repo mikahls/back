@@ -1,0 +1,502 @@
+<h1> AI Builders Digest 今日热点快报</h1>
+<p><strong>2026年09月04日 22时42分52秒(UTC+8)</strong></p>
+<hr>
+<h3>欧洲半导体股普遍上涨</h3>
+<p>
+ | 来源: http://www.szslewingbearing.com/blog/20260904-347.shtml
+</p>
+
+<h3>知情人士：CIA局长访俄为北约和伊朗</h3>
+<p>
+ | 来源: http://dnscncwx8.sk8.china868.com/blog/20260904-661.shtml
+</p>
+
+<h3>两部门印发文件，加强知识产权数据资源开发利用</h3>
+<p>
+ | 来源: https://caidaome.com/?post=80
+</p>
+
+<h3>福建：加快研发提升车规级高功率器件，开发面向5G/6G宏基站及低轨卫星通信的射频芯片与微波组件</h3>
+<p>
+ | 来源: http://erp.scminghua.cn/blog/20260904-775.shtml
+</p>
+
+<h3>国家统计局：2025年我国经济发展新动能指数增长12.5%</h3>
+<p>
+ | 来源: http://xyzy.zzhddz.com/blog/20260904-748.shtml
+</p>
+
+<h3>A股收评：科创50指数大涨近4% A股成交额较昨日大幅放量超3000亿</h3>
+<p>
+ | 来源: http://www.carinway.com/blog/20260904-432.shtml
+</p>
+
+<h3>ETF两市成交额报4297.04亿元，较昨日此时放量40.96亿元</h3>
+<p>
+ | 来源: http://www.hantec.com.cn/blog/20260904-589.shtml
+</p>
+
+<h3>ETF收评：科创芯片设计ETF领涨6.18%，纳指生物科技ETF领跌1.93%</h3>
+<p>
+ | 来源: http://www.ncqt.cn/blog/20260904-553.shtml
+</p>
+
+<h3>福建：稳步扩大12英寸晶圆、功率半导体、模拟芯片等产品制造产能</h3>
+<p>
+ | 来源: http://xjidc.sk7.china868.com/blog/20260904-572.shtml
+</p>
+
+<h3>金开新能在乌兰察布成立智算科技公司 含多项AI业务</h3>
+<p>
+ | 来源: http://www.2003.com.cn/blog/20260904-411.shtml
+</p>
+
+<h3>上海将在虹桥国际中央商务区打造“虹桥出海特色平台”</h3>
+<p>
+ | 来源: http://sctem.scminghua.cn/blog/20260904-663.shtml
+</p>
+
+<h3>知情人士坚称CIA局长访俄为北约和伊朗</h3>
+<p>
+ | 来源: http://shusongdaig.07858.net/blog/20260904-892.shtml
+</p>
+
+<h3>上海虹桥国际中央商务区：“十五五”时期全力建成出海制度创新高地</h3>
+<p>
+ | 来源: http://www.lanboqingjie.com/blog/20260904-956.shtml
+</p>
+
+<h3>水利部：尼泊尔两河交汇处现明显堰塞湖 未来3天溃泄风险高 正密切监视</h3>
+<p>
+ | 来源: http://www.candor-co.com/blog/20260904-527.shtml
+</p>
+
+<h3>韩国法院对涉嫌杀害中国留学生的嫌疑人签发拘捕令</h3>
+<p>
+ | 来源: http://bjwtht.com/blog/20260904-629.shtml
+</p>
+
+<h3>福建：深化闽台体育双向融通，争取落地一批国家级单项运动协会主办的闽台体育赛事</h3>
+<p>
+ | 来源: http://static.sk7.china868.com/blog/20260904-298.shtml
+</p>
+
+<h3>沪深京三市成交额超2万亿元，较上日此时放量2869亿元</h3>
+<p>
+ | 来源: http://zjgcyl.com/blog/20260904-877.shtml
+</p>
+
+<h3>台风“沙德尔”临近 福建海事局启动防台风一级应急响应</h3>
+<p>
+ | 来源: http://www.scminghua.cn/blog/20260904-505.shtml
+</p>
+
+<h3>福建：拟支持海峡两岸生物技术和医疗健康产业合作区建设</h3>
+<p>
+ | 来源: http://XJ6fx0hb.sk7.china868.com/blog/20260904-311.shtml
+</p>
+
+<h3>中国汽车流通协会乘联分会负责人崔东树：1-7月汽车行业利润率3.6%</h3>
+<p>
+ | 来源: http://XJ2bfqu6.sk7.china868.com/blog/20260904-931.shtml
+</p>
+
+<h3>两大减肥药巨头竞逐中国市场：口服减重版司美格鲁肽国内上市申请获受理</h3>
+<p>
+ | 来源: http://bluedon.sk7.china868.com/blog/20260904-138.shtml
+</p>
+
+<h3>水利部密切监视堰塞湖动态 对可能溃泄洪水进行演算分析</h3>
+<p>
+ | 来源: http://XJ24q3u9.sk7.china868.com/blog/20260904-582.shtml
+</p>
+
+<h3>仁和药业等成立优选健康科技公司</h3>
+<p>
+ | 来源: http://www.hdhc.com.cn/blog/20260904-141.shtml
+</p>
+
+<h3>宁德时代投资成立新公司 含电力设施器材业务</h3>
+<p>
+ | 来源: http://www.lehon.com.cn/blog/20260904-965.shtml
+</p>
+
+<h3>上证指数涨1% AI硬件方向大幅走强</h3>
+<p>
+ | 来源: http://xinfei6266.sk7.china868.com/blog/20260904-290.shtml
+</p>
+
+<h3>存储芯片概念持续走高 德明利涨停</h3>
+<p>
+ | 来源: http://www.njytp.com/blog/20260904-541.shtml
+</p>
+
+<h3>西藏吉隆沿线中国石油加油站油品库存充足</h3>
+<p>
+ | 来源: http://lebao2.sk8.china868.com/blog/20260904-680.shtml
+</p>
+
+<h3>新版《有机产品认证目录》发布 涉及1087种产品</h3>
+<p>
+ | 来源: http://fncy.sk7.china868.com/blog/20260904-101.shtml
+</p>
+
+<h3>2026年亚太经合组织第三次高官会开幕式在大连举行</h3>
+<p>
+ | 来源: http://dnscncwx8.sk7.china868.com/blog/20260904-974.shtml
+</p>
+
+<h3>中国救援队抵达吉隆县吉隆镇</h3>
+<p>
+ | 来源: http://www.etmval.com/blog/20260904-122.shtml
+</p>
+
+<h3>互联网金融板块午后持续走高</h3>
+<p>
+ | 来源: http://www.lkqihang.com/blog/20260904-862.shtml
+</p>
+
+<h3>西部战区：解放军和武警部队已派出500余人前出救援</h3>
+<p>
+ | 来源: http://www.fuosgao.com/blog/20260904-925.shtml
+</p>
+
+<h3>大商所乙二醇主力合约大跌5%</h3>
+<p>
+ | 来源: http://mysql.sk7.china868.com/blog/20260904-214.shtml
+</p>
+
+<h3>巴基斯坦安全部队在反恐行动中消灭11名恐怖分子</h3>
+<p>
+ | 来源: http://www.wheat.org.cn/blog/20260904-612.shtml
+</p>
+
+<h3>中使馆：在菲律宾黑恶势力头目邱某某被成功遣返回国</h3>
+<p>
+ | 来源: http://www.tjztzt.com/blog/20260904-812.shtml
+</p>
+
+<h3>多家银行全力支持西藏吉隆口岸泥石流灾害抢险救灾</h3>
+<p>
+ | 来源: http://www.jsxxwy.com/blog/20260904-636.shtml
+</p>
+
+<h3>思特威推出高端国产化平台超高清手机应用CMOS图像传感器</h3>
+<p>
+ | 来源: http://www.chinanewman.cn/blog/20260904-849.shtml
+</p>
+
+<h3>瑞萨电子在北京设立物理AI与机器人实验室</h3>
+<p>
+ | 来源: http://www.lottiesilicone.com/blog/20260904-866.shtml
+</p>
+
+<h3>HashKey Capital将推出数字资产衍生品及结构化解决方案业务</h3>
+<p>
+ | 来源: http://dl.drsky.cc/blog/20260904-549.shtml
+</p>
+
+<h3>嘉元科技：高端电子电路铜箔部分产品已向个别客户小批量供货</h3>
+<p>
+ | 来源: https://caidaome.com/?post=64
+</p>
+
+<h3>西藏交通运输部门：通往吉隆口岸的G216线受损路段约3公里</h3>
+<p>
+ | 来源: http://ykbees.com/blog/20260904-125.shtml
+</p>
+
+<h3>交通运输部启动台风二级防御响应</h3>
+<p>
+ | 来源: http://w.xfgzs.vip/blog/20260904-737.shtml
+</p>
+
+<h3>广西：拟优化商品住房消费支持政策 鼓励住房梯度消费</h3>
+<p>
+ | 来源: http://bjcst.sk7.china868.com/blog/20260904-927.shtml
+</p>
+
+<h3>国内首个端侧AI工作站团体标准发布 奥尼电子端边云协同业务模式加速落地</h3>
+<p>
+ | 来源: http://hfzbjx.com/blog/20260904-980.shtml
+</p>
+
+<h3>美联储理事库克再次否认涉及住房抵押贷款欺诈</h3>
+<p>
+ | 来源: https://gitcode.com/ylscode/gitcode_knowledge/tree/main/CSDN%E5%8D%9A%E6%96%87%E5%A4%87%E4%BB%BD
+</p>
+
+<h3>二季度全球新发ETF1018只 主动ETF占比63.6%</h3>
+<p>
+ | 来源: http://hosting.sk8.china868.com/blog/20260904-598.shtml
+</p>
+
+<h3>摩根大通：将英伟达的目标价从280美元上调至320美元</h3>
+<p>
+ | 来源: http://taijiguanzhen.sk7.china868.com/blog/20260904-739.shtml
+</p>
+
+<h3>第18号台风“沙德尔”将在浙江正面登陆</h3>
+<p>
+ | 来源: http://sfangji.sk7.china868.com/blog/20260904-891.shtml
+</p>
+
+<h3>阿里发布全新Qoder</h3>
+<p>
+ | 来源: http://www.kanjinzhaowang.com/blog/20260904-300.shtml
+</p>
+
+<h3>9部门发布关于促进航空保税维修高质量发展的意见</h3>
+<p>
+ | 来源: http://XJfcksp9.sk8.china868.com/blog/20260904-595.shtml
+</p>
+
+<h3>立讯精密：电连接产品预计第四季度会出现较明显的起量</h3>
+<p>
+ | 来源: http://www.hanlonggf.com/blog/20260904-896.shtml
+</p>
+
+<h3>沪深京三市成交额超1.5万亿元，较上日此时放量1601亿元</h3>
+<p>
+ | 来源: http://www.dnscnc.com/blog/20260904-191.shtml
+</p>
+
+<h3>国家防总、应急管理部针对上海启动防汛防台风四级应急响应</h3>
+<p>
+ | 来源: http://thuni-h.com/blog/20260904-704.shtml
+</p>
+
+<h3>应急管理部针对浙江启动国家地质灾害四级应急响应</h3>
+<p>
+ | 来源: http://www.xinyunchina.com/blog/20260904-421.shtml
+</p>
+
+<h3>北京首例AIGC领域商业秘密行政处罚案开出10万元罚单</h3>
+<p>
+ | 来源: http://www.phukiensonyalpha.com/blog/20260904-881.shtml
+</p>
+
+<h3>中国安能专业救援力量紧急驰援西藏吉隆泥石流救援</h3>
+<p>
+ | 来源: http://www.zj-creat.com/blog/20260904-371.shtml
+</p>
+
+<h3>港股智谱涨超11%</h3>
+<p>
+ | 来源: http://xdpsoft.com/blog/20260904-322.shtml
+</p>
+
+<h3>港股蜜雪集团午后跌幅扩大至超10%</h3>
+<p>
+ | 来源: http://trygoo.com/blog/20260904-915.shtml
+</p>
+
+<h3>中国安能救援人员：泥石流边缘距吉隆口岸约2.5公里，边缘厚度近1.5米</h3>
+<p>
+ | 来源: http://www.dalianmingteng.com/blog/20260904-552.shtml
+</p>
+
+<h3>美媒：美中情局长突访意在警告俄勿攻击北约</h3>
+<p>
+ | 来源: http://autoweb.sk7.china868.com/blog/20260904-893.shtml
+</p>
+
+<h3>王毅会见美国驻华大使庞德伟</h3>
+<p>
+ | 来源: http://www.naiweitech.com/blog/20260904-232.shtml
+</p>
+
+<h3>Omdia：卫星物联网连接数预计2035年将达到1.98亿</h3>
+<p>
+ | 来源: http://mysql.china868.com/blog/20260904-524.shtml
+</p>
+
+<h3>蜜雪集团：上半年期内利润23.19亿元，同比下降14.7%</h3>
+<p>
+ | 来源: http://www.obocan.com/blog/20260904-206.shtml
+</p>
+
+<h3>Qwen3.8-Flash 模型降价</h3>
+<p>
+ | 来源: http://ssj123.sk7.china868.com/blog/20260904-904.shtml
+</p>
+
+<h3>世卫专家：刚果（金）埃博拉疫情尚未现拐点</h3>
+<p>
+ | 来源: http://www.antu.com.cn/blog/20260904-716.shtml
+</p>
+
+<h3>印尼勒沃托比火山喷发 火山灰柱高达2500米</h3>
+<p>
+ | 来源: http://www.colorcnt.com/blog/20260904-752.shtml
+</p>
+
+<h3>港股午评：恒生指数跌0.42%，恒生科技指数涨0.19%</h3>
+<p>
+ | 来源: http://xinnet.top/blog/20260904-414.shtml
+</p>
+
+<h3>广西11条河流出现超警洪水</h3>
+<p>
+ | 来源: http://www.nansinet.com/blog/20260904-294.shtml
+</p>
+
+<h3>8月27日午间公告一览：广济药业2026年度向特定对象发行获深交所受理</h3>
+<p>
+ | 来源: http://uxingmoju.89ix.com/blog/20260904-361.shtml
+</p>
+
+<h3>上海警方侦破一起特大地下钱庄案：利用虚拟货币跨境汇兑，涉案近200亿元</h3>
+<p>
+ | 来源: http://www.xc-electric.cn/blog/20260904-276.shtml
+</p>
+
+<h3>科兴制药与华益泰康达成合作，共同推进琥珀酸美托洛尔缓释片中国香港市场商业化</h3>
+<p>
+ | 来源: http://www.cxhy.com.cn/blog/20260904-338.shtml
+</p>
+
+<h3>机构：iPhone 17成为2026年第二季度全球最畅销智能手机</h3>
+<p>
+ | 来源: http://www.sdfsgy.com/blog/20260904-872.shtml
+</p>
+
+<h3>知情人士回应“A股未盈利企业无法上市”</h3>
+<p>
+ | 来源: http://mj.scminghua.cn/blog/20260904-302.shtml
+</p>
+
+<h3>理想汽车李想：电池和芯片是具身智能行业最重要的技术壁垒</h3>
+<p>
+ | 来源: http://www.wmh.cn/blog/20260904-134.shtml
+</p>
+
+<h3>ETF两市成交额报2718.33亿元，较昨日此时缩量177.17亿元</h3>
+<p>
+ | 来源: http://hnxiaoxin.com/blog/20260904-533.shtml
+</p>
+
+<h3>欧亚经济联盟延长对原产于中国的铝制餐厨具反倾销措施期限</h3>
+<p>
+ | 来源: http://tgmall.jlmjj.com.cn/blog/20260904-165.shtml
+</p>
+
+<h3>A股午评：科创50指数大涨3.45%，AI硬件方向集体爆发</h3>
+<p>
+ | 来源: http://itleader2.sk7.china868.com/blog/20260904-932.shtml
+</p>
+
+<h3>ETF午评：科创芯片设计ETF领涨5.37%，纳指生物科技ETF领跌2.25%</h3>
+<p>
+ | 来源: http://www.bugtxt.com
+</p>
+
+<h3>多支科创芯片设计ETF涨超5%</h3>
+<p>
+ | 来源: http://www.yowelt.com/blog/20260904-288.shtml
+</p>
+
+<h3>贾跃亭：FF机器人工厂年内运营 发布两款机器人新品</h3>
+<p>
+ | 来源: http://www.itszld.com/blog/20260904-787.shtml
+</p>
+
+<h3>奥地利国民议会议长将访华</h3>
+<p>
+ | 来源: http://topman.sk7.china868.com/blog/20260904-125.shtml
+</p>
+
+<h3>银河通用在北京成立具身智能机器人公司</h3>
+<p>
+ | 来源: https://caidaome.com/?post=109
+</p>
+
+<h3>四川航空将执飞多趟次航班至拉萨 保障西藏吉隆泥石流灾害救援</h3>
+<p>
+ | 来源: http://www.gdgjy.com/blog/20260904-530.shtml
+</p>
+
+<h3>阿里速卖通：Brand+品牌货盘在欧盟市场同比增长97%</h3>
+<p>
+ | 来源: http://www.bjdjhc.com/blog/20260904-719.shtml
+</p>
+
+<h3>特朗普：伊朗最高领袖仍然在世 但身体左侧有严重伤势</h3>
+<p>
+ | 来源: https://caidaome.com
+</p>
+
+<h3>中国安能：排除上游堰塞体险情是当前首要任务</h3>
+<p>
+ | 来源: http://lkqihang.com/blog/20260904-543.shtml
+</p>
+
+<h3>润邦股份：子公司润邦海洋获多项平台供应船建造合同</h3>
+<p>
+ | 来源: http://www.dhqlqx.com/blog/20260904-523.shtml
+</p>
+
+<h3>诺和诺德于中国递交司美格鲁肽片片剂用于长期体重管理的上市申请</h3>
+<p>
+ | 来源: http://wzhaobang.com/blog/20260904-622.shtml
+</p>
+
+<h3>百度搭子打通百度多款产品 一站式入口加速成型</h3>
+<p>
+ | 来源: http://www.huhangonline.com/blog/20260904-811.shtml
+</p>
+
+<h3>长鑫科技成交额达100亿元</h3>
+<p>
+ | 来源: http://www.sf304.cc/blog/20260904-332.shtml
+</p>
+
+<h3>2026·中国—南非人权研讨会在浙江杭州举行</h3>
+<p>
+ | 来源: http://sctem.scminghua.cn/blog/20260904-558.shtml
+</p>
+
+<h3>灵初智能完成新一轮过亿美元融资</h3>
+<p>
+ | 来源: http://www.qiangyang.com.cn/blog/20260904-817.shtml
+</p>
+
+<h3>简智机器人完成A轮融资</h3>
+<p>
+ | 来源: http://sk7.china868.com/blog/20260904-394.shtml
+</p>
+
+<h3>安踏集团捐赠1000万元现金，驰援西藏吉隆等地救灾</h3>
+<p>
+ | 来源: http://hengaodebj.com/blog/20260904-761.shtml
+</p>
+
+<h3>贵州省与中国电信集团有限公司签署战略合作协议</h3>
+<p>
+ | 来源: http://gwmpa201.sk8.china868.com/blog/20260904-750.shtml
+</p>
+
+<h3>国家能源局：2026年1—7月全国电力市场交易电量同比增长23.4%</h3>
+<p>
+ | 来源: http://shmoushe.com/blog/20260904-261.shtml
+</p>
+
+<h3>深房协：7月新建商品住宅成交同比涨超三成</h3>
+<p>
+ | 来源: http://www.xgmpumps.com/blog/20260904-322.shtml
+</p>
+
+<h3>群核科技发布3D生成模型Lux3D</h3>
+<p>
+ | 来源: http://www.cixifego.com/blog/20260904-213.shtml
+</p>
+
+<h3>监管部门在上海举办私募合规及政策解读培训班</h3>
+<p>
+ | 来源: http://shusongdaij.07858.net/blog/20260904-139.shtml
+</p>
+
+<h3>科创50指数涨幅扩大至3%</h3>
+<p>
+ | 来源: http://zyl100.com/blog/20260904-909.shtml
+</p>

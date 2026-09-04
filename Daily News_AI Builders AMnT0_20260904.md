@@ -1,0 +1,502 @@
+<h1> AI Builders Digest 今日热点快报</h1>
+<p><strong>2026年09月04日 22时42分53秒(UTC+8)</strong></p>
+<hr>
+<h3>港股通标的证券名单调入晶合集成</h3>
+<p>
+ | 来源: http://XJb6ux4t.sk7.china868.com/blog/20260904-531.shtml
+</p>
+
+<h3>富士胶片股价下跌18%</h3>
+<p>
+ | 来源: http://fastchina.net/blog/20260904-526.shtml
+</p>
+
+<h3>安徽省省长王清宪：巩固提升新一代信息技术产业核心竞争力</h3>
+<p>
+ | 来源: http://www.xinyunchina.com/blog/20260904-421.shtml
+</p>
+
+<h3>伊朗拟禁止敌对方通行霍尔木兹海峡 对违规者重罚</h3>
+<p>
+ | 来源: http://hfzbjx.com/blog/20260904-980.shtml
+</p>
+
+<h3>天赐材料：用于数据中心的氟化液产品仍处于实验室小试阶段</h3>
+<p>
+ | 来源: http://www.yx-gas.com/blog/20260904-166.shtml
+</p>
+
+<h3>全球最大的黄金ETF SPDR Gold Trust持仓较前日增加0.57吨</h3>
+<p>
+ | 来源: http://www.au-di.com/blog/20260904-680.shtml
+</p>
+
+<h3>昨日ETF资金整体净流出218.44亿元</h3>
+<p>
+ | 来源: http://www.sypdsl.com/blog/20260904-726.shtml
+</p>
+
+<h3>智利宣布与委内瑞拉恢复领事关系</h3>
+<p>
+ | 来源: http://dl.drsky.cc/blog/20260904-549.shtml
+</p>
+
+<h3>沙特称胡塞武装袭击造成11名平民受伤</h3>
+<p>
+ | 来源: http://www.shlanba.com/blog/20260904-250.shtml
+</p>
+
+<h3>布伦特原油站上83美元/桶</h3>
+<p>
+ | 来源: http://www.hjqzj.com/blog/20260904-500.shtml
+</p>
+
+<h3>马斯克：TeraFab的AI计算产出约75%用于人工智能航天器</h3>
+<p>
+ | 来源: http://www.cqytcp.com/blog/20260904-208.shtml
+</p>
+
+<h3>Stripe据悉拟100亿美元收购OpenRouter，进军AI基础设施领域</h3>
+<p>
+ | 来源: http://tjkehui.com/blog/20260904-284.shtml
+</p>
+
+<h3>OpenAI更新ChatGPT体验，免费用户可使用GPT-5.6 Luna并享无限文本聊天</h3>
+<p>
+ | 来源: http://www.dh-huac.com/blog/20260904-519.shtml
+</p>
+
+<h3>Salesforce计划在华盛顿和加利福尼亚州裁员133人</h3>
+<p>
+ | 来源: http://www.lkqihang.com/blog/20260904-862.shtml
+</p>
+
+<h3>电解液添加剂VC价格一年涨了4倍 供不应求状况短期不会改变</h3>
+<p>
+ | 来源: http://china-geya.com/blog/20260904-241.shtml
+</p>
+
+<h3>韩国股市波动风暴持续 机构分析短期降温效果初步达成</h3>
+<p>
+ | 来源: http://kaimori.com.cn/blog/20260904-341.shtml
+</p>
+
+<h3>私募7月调研“钟情”科技：国产算力链成新共识</h3>
+<p>
+ | 来源: http://onponder.sk8.china868.com/blog/20260904-612.shtml
+</p>
+
+<h3>可转债一级市场正在升温 今年以来累计发行51只同比增长104%</h3>
+<p>
+ | 来源: http://duanhonggang.sk8.china868.com/blog/20260904-979.shtml
+</p>
+
+<h3>全球流动性收紧节奏暂缓，券商研判下半年或出现边际改善</h3>
+<p>
+ | 来源: http://jcs-valve.com/blog/20260904-971.shtml
+</p>
+
+<h3>扎堆进入股东榜 公募机构紧盯业绩兑现度</h3>
+<p>
+ | 来源: http://www.kaimori.cn/blog/20260904-828.shtml
+</p>
+
+<h3>全球最大的白银ETF iShares Silver Trust持仓量较前日增加42.17吨</h3>
+<p>
+ | 来源: http://www.antu.com.cn/blog/20260904-716.shtml
+</p>
+
+<h3>房贷利率下探至2.8%以下，银行设置客户资质与合作渠道门槛</h3>
+<p>
+ | 来源: http://en.chinese-green.com/blog/20260904-635.shtml
+</p>
+
+<h3>台风黄色预警 “白海豚” 或将登陆浙江至福建北部沿海地区</h3>
+<p>
+ | 来源: http://www.nbcnkl.cn/blog/20260904-591.shtml
+</p>
+
+<h3>叙利亚大马士革农村省“恐怖爆炸”致2死13伤</h3>
+<p>
+ | 来源: http://itleader2.sk7.china868.com/blog/20260904-932.shtml
+</p>
+
+<h3>智利与委内瑞拉正式恢复领事关系</h3>
+<p>
+ | 来源: http://www.zlbigdata.com/blog/20260904-906.shtml
+</p>
+
+<h3>7月份中国仓储指数保持扩张 行业运行韧性较强</h3>
+<p>
+ | 来源: http://www.fuosgao.com/blog/20260904-925.shtml
+</p>
+
+<h3>美联储穆萨莱姆：预计通胀持续高于目标的可能性加大，在最近的FOMC会议上倾向于加息</h3>
+<p>
+ | 来源: http://pudonghuwai.big-shanghai.com/blog/20260904-163.shtml
+</p>
+
+<h3>美联储官员穆萨莱姆：美国经济近几个月表现有韧性</h3>
+<p>
+ | 来源: http://www.xc-electric.cn/blog/20260904-276.shtml
+</p>
+
+<h3>美联储穆萨莱姆：风险天平向高通胀一侧倾斜， 对核心通胀实施实质性约束至关重要</h3>
+<p>
+ | 来源: http://mysql55.china868.com/blog/20260904-617.shtml
+</p>
+
+<h3>美国白宫：美国对多晶硅设定每公斤21美元的最低进口价格</h3>
+<p>
+ | 来源: http://bjdjhc.com/blog/20260904-673.shtml
+</p>
+
+<h3>谷歌母公司Alphabet发行250亿美元投资级债券</h3>
+<p>
+ | 来源: http://www.hnjtyjz.com/blog/20260904-327.shtml
+</p>
+
+<h3>美国政府考虑针对自闭症与疫苗出台行政命令</h3>
+<p>
+ | 来源: http://mysql.china868.com/blog/20260904-524.shtml
+</p>
+
+<h3>特朗普称霍尔木兹海峡协议尚未达成 正参与相关谈判</h3>
+<p>
+ | 来源: http://winnerelectric.cn/blog/20260904-683.shtml
+</p>
+
+<h3>特朗普称，正在俄罗斯和乌克兰问题上取得进展</h3>
+<p>
+ | 来源: http://www.junaochina.com/blog/20260904-104.shtml
+</p>
+
+<h3>特朗普表示，现在考虑支持万斯2028年竞选还为时尚早</h3>
+<p>
+ | 来源: http://dnscnc.com/blog/20260904-676.shtml
+</p>
+
+<h3>特朗普：大力度、更严厉地打击生育旅游</h3>
+<p>
+ | 来源: http://www.baiyijs.com/blog/20260904-596.shtml
+</p>
+
+<h3>世纪铝业二季度净销售7.52亿美元，分析师预期8.17亿美元</h3>
+<p>
+ | 来源: http://duanhonggang.sk7.china868.com/blog/20260904-780.shtml
+</p>
+
+<h3>爱彼迎预计三季度营收46.9亿-47.7亿美元，分析师预期46亿美元</h3>
+<p>
+ | 来源: http://www.xinghualou.net.cn/blog/20260904-748.shtml
+</p>
+
+<h3>Atlassian预计2027财年营收将增长13%</h3>
+<p>
+ | 来源: http://www.candor-co.com/blog/20260904-527.shtml
+</p>
+
+<h3>OpenAI产品外售价将超过300美元</h3>
+<p>
+ | 来源: http://www.rzjupian.com/blog/20260904-833.shtml
+</p>
+
+<h3>伊朗格什姆岛传出爆炸声</h3>
+<p>
+ | 来源: http://www.xl-2.com/blog/20260904-728.shtml
+</p>
+
+<h3>迪士尼开始在ESPN和Disney+上测试由人工智能驱动的搜索和内容发现功能</h3>
+<p>
+ | 来源: http://vrtop888.sk7.china868.com/blog/20260904-876.shtml
+</p>
+
+<h3>WTI原油期货价格涨4.06%，报78.28美元/桶</h3>
+<p>
+ | 来源: http://hnxiaoxin.com/blog/20260904-533.shtml
+</p>
+
+<h3>SpaceX将为美国得州芯片工厂建造天然气发电厂</h3>
+<p>
+ | 来源: http://www.dzlg.net/blog/20260904-887.shtml
+</p>
+
+<h3>在岸人民币兑美元收报6.75元，较周二夜盘收盘跌22点</h3>
+<p>
+ | 来源: http://riwaymetal.com/blog/20260904-363.shtml
+</p>
+
+<h3>叙利亚大马士革农村省发生爆炸致2死13伤</h3>
+<p>
+ | 来源: http://lkqihang.com/blog/20260904-543.shtml
+</p>
+
+<h3>美国考虑推迟征收多晶硅相关产品关税</h3>
+<p>
+ | 来源: http://www.zongmeng123.com/blog/20260904-521.shtml
+</p>
+
+<h3>美国考虑推迟关税征收，第一太阳能股价涨幅快速收窄</h3>
+<p>
+ | 来源: http://www.jietaidianqi.com/blog/20260904-513.shtml
+</p>
+
+<h3>NSCALE 宣称手握 510亿美元合同，目标 9月赴美上市</h3>
+<p>
+ | 来源: http://mysql.sk7.china868.com/blog/20260904-214.shtml
+</p>
+
+<h3>今年7月美国从沙特进口的原油降至零</h3>
+<p>
+ | 来源: http://www.13906623869.com/blog/20260904-738.shtml
+</p>
+
+<h3>聚焦气候变化 研究揭示西伯利亚甲烷排放加速增长</h3>
+<p>
+ | 来源: http://www.ncqt.cn/blog/20260904-553.shtml
+</p>
+
+<h3>德意志银行聘请美国银行的Ed Liu担任全球TMT（科技、媒体与电信）主管</h3>
+<p>
+ | 来源: http://www.jiamaofood.com/blog/20260904-897.shtml
+</p>
+
+<h3>美国法院颁布禁令，阻止特朗普冻结风电许可的举措</h3>
+<p>
+ | 来源: http://www.phukiensonyalpha.com/blog/20260904-881.shtml
+</p>
+
+<h3>黎巴嫩与以色列第七轮会谈结束 拟于9月1日继续进行</h3>
+<p>
+ | 来源: http://www.lanboqingjie.com/blog/20260904-956.shtml
+</p>
+
+<h3>美国官员：没有任何一方掌控霍尔木兹海峡航道，船舶可通行</h3>
+<p>
+ | 来源: http://vrtop888.sk8.china868.com/blog/20260904-108.shtml
+</p>
+
+<h3>OpenAI：面向免费用户 将默认模型升级为GPT-5.6 LUNA</h3>
+<p>
+ | 来源: http://taijiguanzhen.sk8.china868.com/blog/20260904-124.shtml
+</p>
+
+<h3>以海军在地中海和红海举行大规模军事演习</h3>
+<p>
+ | 来源: http://dbkgm.scminghua.cn/blog/20260904-362.shtml
+</p>
+
+<h3>美国联邦储备委员会向伊拉克中央银行运送5亿美元现钞</h3>
+<p>
+ | 来源: http://www.hw-dz.com/blog/20260904-648.shtml
+</p>
+
+<h3>伊朗与阿曼协议难实施，受美国制裁影响</h3>
+<p>
+ | 来源: http://www.glparis.cn/blog/20260904-706.shtml
+</p>
+
+<h3>英伟达考虑为Rubin Ultra GPU采用更少的高带宽内存</h3>
+<p>
+ | 来源: http://www.2ec.com.cn/blog/20260904-864.shtml
+</p>
+
+<h3>惠誉评级维持2026年布伦特原油价格预测在每桶87美元不变</h3>
+<p>
+ | 来源: http://www.jsxdaf.com/blog/20260904-355.shtml
+</p>
+
+<h3>美国宣布对古巴实施新一轮制裁</h3>
+<p>
+ | 来源: http://topman.sk7.china868.com/blog/20260904-125.shtml
+</p>
+
+<h3>美国上周30年期按揭贷款/抵押贷款利率6.69%</h3>
+<p>
+ | 来源: http://hengaodebj.com/blog/20260904-761.shtml
+</p>
+
+<h3>国际原油期货涨幅扩大 布油涨超4%</h3>
+<p>
+ | 来源: http://xyzy.zzhddz.com/blog/20260904-748.shtml
+</p>
+
+<h3>也门胡塞武装称袭击政府军集结地</h3>
+<p>
+ | 来源: http://tjmws.com/blog/20260904-513.shtml
+</p>
+
+<h3>协议显示，美国和以色列船只被禁止通过霍尔木兹海峡</h3>
+<p>
+ | 来源: http://xinfei6266.sk7.china868.com/blog/20260904-290.shtml
+</p>
+
+<h3>ALPHABET巨额债券发行获约 1150亿美元认购需求</h3>
+<p>
+ | 来源: http://m.shanghuangmei.com/blog/20260904-163.shtml
+</p>
+
+<h3>马斯克：TeraFab的AI计算产出约25%用于特斯拉Optimus，75%用于AI航天器</h3>
+<p>
+ | 来源: http://www.bj-cst.com/blog/20260904-592.shtml
+</p>
+
+<h3>刚果（金）禁止铜精矿、钴精矿出口 紫金矿业：公司在当地的产品不在禁止出口之列</h3>
+<p>
+ | 来源: http://www.naiweitech.com/blog/20260904-232.shtml
+</p>
+
+<h3>日元兑美元跌幅扩大至0.5%</h3>
+<p>
+ | 来源: http://gwmpa201.sk7.china868.com/blog/20260904-309.shtml
+</p>
+
+<h3>国际油价持续走强，WTI原油期货价格涨2.57%</h3>
+<p>
+ | 来源: http://www.thuni-h.com/blog/20260904-112.shtml
+</p>
+
+<h3>泽连斯基解除多名乌克兰驻外大使职务</h3>
+<p>
+ | 来源: http://wmh.cn/blog/20260904-573.shtml
+</p>
+
+<h3>黎巴嫩与以色列第七轮会谈结束</h3>
+<p>
+ | 来源: http://fncy.sk8.china868.com/blog/20260904-426.shtml
+</p>
+
+<h3>法国卫生部通报一例安第斯型汉坦病毒输入病例</h3>
+<p>
+ | 来源: http://www.bjwtht.com/blog/20260904-552.shtml
+</p>
+
+<h3>水贝金价两天涨了近50元</h3>
+<p>
+ | 来源: http://www.wftzjx.com/blog/20260904-696.shtml
+</p>
+
+<h3>利雅得航空与中国航信签署合作协议加强互联互通</h3>
+<p>
+ | 来源: http://www.sh-peihe.com/blog/20260904-980.shtml
+</p>
+
+<h3>意大利首次对全部监测城市发布高温红色预警</h3>
+<p>
+ | 来源: http://fncy.sk7.china868.com/blog/20260904-101.shtml
+</p>
+
+<h3>也门胡塞武装袭击致35名政府军士兵死亡</h3>
+<p>
+ | 来源: http://www.fncy.com/blog/20260904-816.shtml
+</p>
+
+<h3>安徽市场监管2025年以来减、免罚案件超3万件</h3>
+<p>
+ | 来源: http://shusongdaij.07858.net/blog/20260904-139.shtml
+</p>
+
+<h3>SpaceX上涨逾5%</h3>
+<p>
+ | 来源: http://kanjinzhaowang.com/blog/20260904-992.shtml
+</p>
+
+<h3>创源股份：公司目前并未自建算力中心</h3>
+<p>
+ | 来源: http://www.baijiatoy.com/blog/20260904-567.shtml
+</p>
+
+<h3>英国多地铁路因电力故障出现大面积延误</h3>
+<p>
+ | 来源: http://www.wmh.cn/blog/20260904-134.shtml
+</p>
+
+<h3>费城半导体指数涨2%，报12250.51点</h3>
+<p>
+ | 来源: http://www.cqydcy.com/blog/20260904-903.shtml
+</p>
+
+<h3>纳斯达克100指数转涨，标普500指数上涨0.2%</h3>
+<p>
+ | 来源: http://sansontech.com/blog/20260904-219.shtml
+</p>
+
+<h3>特斯拉拟在得州建设全球最大芯片制造设施，目标年产超1太瓦算力</h3>
+<p>
+ | 来源: http://www.jsxxwy.com/blog/20260904-636.shtml
+</p>
+
+<h3>消息称刚果（金）决定彻底禁止铜精矿、钴精矿出口 上市公司回应</h3>
+<p>
+ | 来源: http://www.baren.hk/blog/20260904-574.shtml
+</p>
+
+<h3>监管重申禁止理财子公司通过合作机构不当估值</h3>
+<p>
+ | 来源: http://dbkgm.scminghua.cn/blog/20260904-593.shtml
+</p>
+
+<h3>我国首个银行业数据出境负面清单备案落地北京</h3>
+<p>
+ | 来源: http://XJd41i6w.sk7.china868.com/blog/20260904-301.shtml
+</p>
+
+<h3>波黑正式申请加入单一欧元支付区</h3>
+<p>
+ | 来源: http://XJppegjx.sk7.china868.com/blog/20260904-534.shtml
+</p>
+
+<h3>依顿电子：拟定增募资不超过20亿元用于高端PCB项目</h3>
+<p>
+ | 来源: http://www.wsclyq.com/blog/20260904-280.shtml
+</p>
+
+<h3>美媒称CIA组建秘密古巴特别工作组</h3>
+<p>
+ | 来源: http://bjcst.sk7.china868.com/blog/20260904-927.shtml
+</p>
+
+<h3>超威半导体美股盘前跌超2%</h3>
+<p>
+ | 来源: http://www.371.com/blog/20260904-838.shtml
+</p>
+
+<h3>五粮液渠道价一箱上涨近百元</h3>
+<p>
+ | 来源: http://ceshi.nankang.com.cn/blog/20260904-109.shtml
+</p>
+
+<h3>毕马威：并购交易恢复活力 年内或迎来分拆浪潮</h3>
+<p>
+ | 来源: http://yajieji.07858.net/blog/20260904-397.shtml
+</p>
+
+<h3>现货黄金失守4240美元/盎司</h3>
+<p>
+ | 来源: http://aiteou.com/blog/20260904-590.shtml
+</p>
+
+<h3>深圳佳贤通信回应：英伟达AI-RAN技术团队曾到访公司，双方已成立技术工作组</h3>
+<p>
+ | 来源: http://www.linksoon.cn/blog/20260904-808.shtml
+</p>
+
+<h3>西班牙飞地休达移民危机已致100人死亡</h3>
+<p>
+ | 来源: http://www.saner.cn/blog/20260904-782.shtml
+</p>
+
+<h3>盛科通信：国家集成电路产业投资基金减持410万股，触及5%刻度</h3>
+<p>
+ | 来源: http://xuanqieji.89ix.com/blog/20260904-737.shtml
+</p>
+
+<h3>字节讨论训练超5万亿参数模型</h3>
+<p>
+ | 来源: http://www.wsclyq.com/blog/20260904-470.shtml
+</p>
+
+<h3>以军称在黎南部展开报复性空袭 打击真主党目标</h3>
+<p>
+ | 来源: http://www.goldenflame.com.cn/blog/20260904-402.shtml
+</p>

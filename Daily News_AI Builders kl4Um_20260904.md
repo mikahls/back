@@ -1,0 +1,502 @@
+<h1> AI Builders Digest 今日热点快报</h1>
+<p><strong>2026年09月04日 22时42分52秒(UTC+8)</strong></p>
+<hr>
+<h3>高伟达：2026年上半年净利润918.91万元，同比下降33.54%</h3>
+<p>
+ | 来源: http://pudonghuwai.big-shanghai.com/blog/20260904-163.shtml
+</p>
+
+<h3>国药股份：2026年上半年净利润8.8亿元，同比下降7.25%</h3>
+<p>
+ | 来源: http://w.xfgzs.vip/blog/20260904-217.shtml
+</p>
+
+<h3>艾力斯：2026年半年度净利润15.41亿元，同比增46.57%</h3>
+<p>
+ | 来源: http://mssql.sk7.china868.com/blog/20260904-385.shtml
+</p>
+
+<h3>芯瑞达：2026年上半年净利润5081.86万元，同比下降23.61%</h3>
+<p>
+ | 来源: http://www.yf-syc.com/blog/20260904-766.shtml
+</p>
+
+<h3>双塔食品：2026年上半年净利润3314.88万元，同比下降39.02%</h3>
+<p>
+ | 来源: http://xdpsoft.com/blog/20260904-322.shtml
+</p>
+
+<h3>陇神戎发：关于控股子公司取得换发后的《药品生产许可证》的公告</h3>
+<p>
+ | 来源: http://www.wzas119.com/blog/20260904-546.shtml
+</p>
+
+<h3>鲁抗医药：控股子公司获克立硼罗软膏补充申请批准，成药品上市许可持有人</h3>
+<p>
+ | 来源: http://www.linksoon.cn/blog/20260904-808.shtml
+</p>
+
+<h3>东方电子：2026年半年度净利润4.03亿元，同比增长33.22%</h3>
+<p>
+ | 来源: http://tgtg.yanmochina.com/blog/20260904-883.shtml
+</p>
+
+<h3>艾芬达：2026年上半年净利润5901.8万元，同比降1.27%</h3>
+<p>
+ | 来源: http://www.qiangyang.com.cn/blog/20260904-817.shtml
+</p>
+
+<h3>朗博科技：2026年上半年净利润1887.7万元，同比降2.11%</h3>
+<p>
+ | 来源: http://www.rzjupian.com/blog/20260904-833.shtml
+</p>
+
+<h3>加拿大政府说本国野火风险仍将处于较高水平</h3>
+<p>
+ | 来源: http://www.saner.cn/blog/20260904-782.shtml
+</p>
+
+<h3>快手-W：2026年第二季度净利润31.52亿元，同比降36.0%</h3>
+<p>
+ | 来源: http://www.ssj123.com/blog/20260904-812.shtml
+</p>
+
+<h3>古麒绒材：2026年上半年净利润9297.84万元，同比降5.51%</h3>
+<p>
+ | 来源: http://lebao2.sk7.china868.com/blog/20260904-428.shtml
+</p>
+
+<h3>辉丰股份：因2023年、2025年定期报告信息披露不准确收警示函</h3>
+<p>
+ | 来源: http://XJfcksp9.sk8.china868.com/blog/20260904-595.shtml
+</p>
+
+<h3>镇海股份：控股股东舜通集团拟协议转让15%股份，控制权将变更</h3>
+<p>
+ | 来源: http://hnxiaoxin.com/blog/20260904-533.shtml
+</p>
+
+<h3>飞南资源：2026年上半年净利润6.49亿元，同比增307.31%</h3>
+<p>
+ | 来源: http://www.hanlonggf.com/blog/20260904-896.shtml
+</p>
+
+<h3>时代电气：2026年上半年净利润17.12亿元，同比增2.44%</h3>
+<p>
+ | 来源: http://m.shanghuangmei.com/blog/20260904-163.shtml
+</p>
+
+<h3>万泰生物：2026年上半年净利润亏损1.28亿元</h3>
+<p>
+ | 来源: https://github.com/mikahls/back/tree/main
+</p>
+
+<h3>华盛锂电：2026年上半年实现扭亏为盈，净利润为2.23亿元</h3>
+<p>
+ | 来源: http://www.021wfz.com/blog/20260904-624.shtml
+</p>
+
+<h3>正泰电器：2026年半年度光伏电站装机容量28949.95兆瓦</h3>
+<p>
+ | 来源: http://www.sarchee.com/blog/20260904-455.shtml
+</p>
+
+<h3>正泰电器：2026年上半年净利润31.3亿元同比增22.23%</h3>
+<p>
+ | 来源: http://tjgz.sk7.china868.com/blog/20260904-800.shtml
+</p>
+
+<h3>伊朗称未与美国进行任何直接对话</h3>
+<p>
+ | 来源: http://www.sh-peihe.com/blog/20260904-980.shtml
+</p>
+
+<h3>厦钨新能：2026年上半年净利润4.91亿元，同比增46.62%</h3>
+<p>
+ | 来源: http://www.airfast.com/blog/20260904-291.shtml
+</p>
+
+<h3>欧元区6月经常账户盈余扩大</h3>
+<p>
+ | 来源: http://bjwtht.sk7.china868.com/blog/20260904-879.shtml
+</p>
+
+<h3>海陆重工：2026年上半年净利润1.61亿元，同比下降15.87%</h3>
+<p>
+ | 来源: http://XJtzylmv.sk7.china868.com/blog/20260904-864.shtml
+</p>
+
+<h3>菲达环保：2026年上半年新增订单24.24亿元</h3>
+<p>
+ | 来源: http://onponder.sk7.china868.com/blog/20260904-675.shtml
+</p>
+
+<h3>菲达环保：2026年上半年净利润1.46亿元，同比增长15.30%</h3>
+<p>
+ | 来源: http://www.tjztzt.com/blog/20260904-812.shtml
+</p>
+
+<h3>港股收评：恒生指数涨0.09%，恒生科技指数跌1.21%</h3>
+<p>
+ | 来源: http://wmh.cn/blog/20260904-573.shtml
+</p>
+
+<h3>SK海力士ADR盘前上涨7.1%，之前该公司宣布290亿美元股票回购计划</h3>
+<p>
+ | 来源: http://www.shlanba.com/blog/20260904-250.shtml
+</p>
+
+<h3>建发合诚：2026年半年度净利润5204.35万元，同比增长15.54%</h3>
+<p>
+ | 来源: http://shusongdaig.07858.net/blog/20260904-892.shtml
+</p>
+
+<h3>白云山：子公司获胞磷胆碱钠注射液补充申请批准通知书</h3>
+<p>
+ | 来源: http://xhout.neteasy.net.cn/blog/20260904-393.shtml
+</p>
+
+<h3>崧盛股份：拟以2406.25万元出售参股公司6.25%股权</h3>
+<p>
+ | 来源: http://www.winnerelectric.cn/blog/20260904-821.shtml
+</p>
+
+<h3>美股中概股盘前涨跌互现，唯品会涨2%</h3>
+<p>
+ | 来源: http://www.guangcizdi.com/blog/20260904-898.shtml
+</p>
+
+<h3>美股大型科技股盘前涨跌互现，SK海力士涨5%</h3>
+<p>
+ | 来源: http://shusongdaie.07858.net/blog/20260904-645.shtml
+</p>
+
+<h3>四方光电：2026年上半年净利润8049.69万元，同比下降4.31%</h3>
+<p>
+ | 来源: http://www.baijiatoy.com/blog/20260904-567.shtml
+</p>
+
+<h3>上海：推动数据出境“负面清单+操作指引”模式覆盖更多行业</h3>
+<p>
+ | 来源: http://jianchajing.89ix.com/blog/20260904-406.shtml
+</p>
+
+<h3>上海：优化迭代新一代超异构融合芯片，满足高并发计算需求</h3>
+<p>
+ | 来源: http://www.nbweijie.com/blog/20260904-173.shtml
+</p>
+
+<h3>宝地矿业：控股子公司备战矿业因推进采选工程项目建设临时停产</h3>
+<p>
+ | 来源: http://www.2738128.com/blog/20260904-330.shtml
+</p>
+
+<h3>外交部：推动半岛问题政治解决 符合各方共同利益</h3>
+<p>
+ | 来源: http://trygoo.com/blog/20260904-915.shtml
+</p>
+
+<h3>国台办：两岸有关青年组织将在上海共同举办交流活动</h3>
+<p>
+ | 来源: http://scmjm.scminghua.cn/blog/20260904-358.shtml
+</p>
+
+<h3>光启技术等成立智能科技公司，含智能无人飞行器制造业务</h3>
+<p>
+ | 来源: http://kaimori.com.cn/blog/20260904-341.shtml
+</p>
+
+<h3>南向资金净卖出超100亿港元</h3>
+<p>
+ | 来源: http://www.lianfengfeiye.com/blog/20260904-766.shtml
+</p>
+
+<h3>欧洲央行行长称欧洲绝不能错过AI革命带来的机遇</h3>
+<p>
+ | 来源: http://gwmpa201.sk7.china868.com/blog/20260904-309.shtml
+</p>
+
+<h3>千方科技：2026年上半年净利润亏损2085.72万元</h3>
+<p>
+ | 来源: https://caidaome.com/?post=64
+</p>
+
+<h3>蜀道装备：2026年半年度净利润3401.77万元，同比增长235.11%</h3>
+<p>
+ | 来源: http://guangcizdi.com/blog/20260904-994.shtml
+</p>
+
+<h3>中交发展：2026年上半年净利润1832.19万元，同比扭亏为盈</h3>
+<p>
+ | 来源: http://www.carinway.com/blog/20260904-432.shtml
+</p>
+
+<h3>丽臣实业：2026年上半年净利润1.55亿元，同比增181.23%</h3>
+<p>
+ | 来源: http://XJfcksp9.sk7.china868.com/blog/20260904-847.shtml
+</p>
+
+<h3>拓荆科技旗下沈阳半导体设备公司增资至33.6亿 增幅约572%</h3>
+<p>
+ | 来源: http://XJppegjx.sk7.china868.com/blog/20260904-534.shtml
+</p>
+
+<h3>美国“元”公司案原告方：“元”公司明知风险却欺骗公众</h3>
+<p>
+ | 来源: http://topman.sk8.china868.com/blog/20260904-513.shtml
+</p>
+
+<h3>富邦科技：2026年上半年净利润5515.02万元，同比降9.91%</h3>
+<p>
+ | 来源: http://www.shunda-cn.com/blog/20260904-447.shtml
+</p>
+
+<h3>敷尔佳：2026年上半年净利润2.56亿元，同比增长11.46%</h3>
+<p>
+ | 来源: http://en.yaruicarpet.cn/blog/20260904-332.shtml
+</p>
+
+<h3>南极电商：2026年上半年净利润5167.92万元，同比增长279.42%</h3>
+<p>
+ | 来源: http://wheat.org.cn/blog/20260904-644.shtml
+</p>
+
+<h3>崧盛股份：2026年半年度实现扭亏为盈，净利润3782万元</h3>
+<p>
+ | 来源: http://XJd41i6w.sk7.china868.com/blog/20260904-301.shtml
+</p>
+
+<h3>消息称三星电子目标今年9月率先完成1d nm DRAM内存研发</h3>
+<p>
+ | 来源: http://www.tedabosion.com/blog/20260904-126.shtml
+</p>
+
+<h3>北京市新增20款已完成备案的生成式人工智能服务</h3>
+<p>
+ | 来源: http://m.migun.net.cn/blog/20260904-529.shtml
+</p>
+
+<h3>国电南自：2026年半年度净利润1.94亿元，同比增长22.01%</h3>
+<p>
+ | 来源: http://www.angelkin.net/blog/20260904-507.shtml
+</p>
+
+<h3>外交部：国际社会坚持一个中国原则的基本格局不可撼动</h3>
+<p>
+ | 来源: http://shopos.sk7.china868.com/blog/20260904-357.shtml
+</p>
+
+<h3>外交部：中方愿同印尼遵循两国元首的战略引领 办好两大机制会议</h3>
+<p>
+ | 来源: http://bjtmhy.sk7.china868.com/blog/20260904-742.shtml
+</p>
+
+<h3>外交部：赞同俄罗斯外长有关涉日表态</h3>
+<p>
+ | 来源: http://www.au-di.com/blog/20260904-557.shtml
+</p>
+
+<h3>沙特证券交易所交易将于2026年8月19日周三恢复，开盘竞价阶段将于上午10:15开始</h3>
+<p>
+ | 来源: http://riwaymetal.com/blog/20260904-363.shtml
+</p>
+
+<h3>王毅外长即将访问韩国 外交部介绍此访期待</h3>
+<p>
+ | 来源: http://www.fncy.com/blog/20260904-816.shtml
+</p>
+
+<h3>美韩联合军演将提前结束，外交部：政治解决半岛问题符合各方共同利益</h3>
+<p>
+ | 来源: http://dnscnc.com/blog/20260904-676.shtml
+</p>
+
+<h3>外交部：国际社会应共同抵制和阻止日本右翼势力危险动向</h3>
+<p>
+ | 来源: http://www.migun.net.cn/blog/20260904-397.shtml
+</p>
+
+<h3>外交部回应美韩联合军演将提前结束</h3>
+<p>
+ | 来源: http://www.colorcnt.com/blog/20260904-752.shtml
+</p>
+
+<h3>美要求各方在美中人工智能生态系统中“选边站队”，外交部答澎湃：坚决反对搞阵营对抗</h3>
+<p>
+ | 来源: http://www.fuosgao.com/blog/20260904-925.shtml
+</p>
+
+<h3>知情人士：五角大楼评估减少在中东军事存在</h3>
+<p>
+ | 来源: http://www.sxsslgcxh.com/blog/20260904-778.shtml
+</p>
+
+<h3>SK海力士美股夜盘涨超5% 公司拟回购40万亿韩元股票</h3>
+<p>
+ | 来源: http://chenban.07858.net/blog/20260904-972.shtml
+</p>
+
+<h3>元力股份：公司超级电容炭已实现规模化量产与销售</h3>
+<p>
+ | 来源: http://www.laserl.com/blog/20260904-206.shtml
+</p>
+
+<h3>山东数据集团揭牌成立</h3>
+<p>
+ | 来源: http://sansontech.com/blog/20260904-219.shtml
+</p>
+
+<h3>电影《牛来》票房破2500万</h3>
+<p>
+ | 来源: http://www.nbcnkl.cn/blog/20260904-591.shtml
+</p>
+
+<h3>晨光生物：已战略布局合成生物学 针对相关产品进行研发</h3>
+<p>
+ | 来源: http://www.riwaymetal.com/blog/20260904-787.shtml
+</p>
+
+<h3>机构：预估2026年中国人形机器人市场规模达150亿元人民币，商业化验收启动</h3>
+<p>
+ | 来源: http://aiteou.com/blog/20260904-590.shtml
+</p>
+
+<h3>全球首项！我国牵头制定的钢铁行业智能制造国际标准发布</h3>
+<p>
+ | 来源: http://nanjing.89ix.com/blog/20260904-239.shtml
+</p>
+
+<h3>巴基斯坦强烈谴责以色列袭击叙利亚</h3>
+<p>
+ | 来源: http://ceshi.nankang.com.cn/blog/20260904-109.shtml
+</p>
+
+<h3>ETF两市成交额报4967.73亿元，较昨日此时放量43.61亿元</h3>
+<p>
+ | 来源: http://www.glmckj.cn/blog/20260904-232.shtml
+</p>
+
+<h3>A股收评：双创指数均大跌超6%，全市仅400余股红盘</h3>
+<p>
+ | 来源: http://www.lzfx.com.cn/blog/20260904-298.shtml
+</p>
+
+<h3>ETF收评：银行ETF涨3.34%，科创机械ETF领跌9.24%</h3>
+<p>
+ | 来源: http://dnscncwx8.sk8.china868.com/blog/20260904-661.shtml
+</p>
+
+<h3>期货收评：地缘冲突引爆燃油狂飙！沪银暴跌超4% 燃油涨超6%</h3>
+<p>
+ | 来源: http://itleader2.sk7.china868.com/blog/20260904-932.shtml
+</p>
+
+<h3>王毅同智利外长佩雷斯会谈</h3>
+<p>
+ | 来源: http://XJ24q3u9.sk7.china868.com/blog/20260904-582.shtml
+</p>
+
+<h3>大幅放量！两只双创ETF成交额再度破百亿</h3>
+<p>
+ | 来源: http://zj-creat.com/blog/20260904-733.shtml
+</p>
+
+<h3>工信部甘小斌：加快智能芯片等关键核心技术攻关，探索类脑智能、世界模型、物理模型等前沿技术</h3>
+<p>
+ | 来源: http://www.chinanewman.com/blog/20260904-753.shtml
+</p>
+
+<h3>SK海力士美股夜盘直线拉升涨超2%</h3>
+<p>
+ | 来源: http://www.newant.com.cn/blog/20260904-171.shtml
+</p>
+
+<h3>SK海力士考虑通过派发固定股息和特别股息扩大派息规模</h3>
+<p>
+ | 来源: http://www.kayin.com.cn/blog/20260904-763.shtml
+</p>
+
+<h3>数据显示逾八成船只经由“阿曼航道”通过霍尔木兹海峡</h3>
+<p>
+ | 来源: http://www.feihuit.cn/blog/20260904-865.shtml
+</p>
+
+<h3>SK海力士将回购价值40万亿韩元的股票</h3>
+<p>
+ | 来源: http://fastchina.net/blog/20260904-526.shtml
+</p>
+
+<h3>多只机器人ETF跌幅扩大至9%</h3>
+<p>
+ | 来源: http://china-geya.com/blog/20260904-528.shtml
+</p>
+
+<h3>中际旭创盘中跌超10%</h3>
+<p>
+ | 来源: https://caidaome.com/?post=109
+</p>
+
+<h3>小米新一代人形机器人剧透！双足、1.7米左右、全身66个自由度</h3>
+<p>
+ | 来源: http://www.goldenflame.com.cn/blog/20260904-402.shtml
+</p>
+
+<h3>魔芯科技完成新一轮5亿元人民币融资</h3>
+<p>
+ | 来源: http://www.idcvisa.com/blog/20260904-214.shtml
+</p>
+
+<h3>创业板指跌6%</h3>
+<p>
+ | 来源: http://www.jiamaofood.com/blog/20260904-897.shtml
+</p>
+
+<h3>眸深智能完成近5亿元Pre-A+轮融资</h3>
+<p>
+ | 来源: http://XJ27blx7.sk7.china868.com/blog/20260904-124.shtml
+</p>
+
+<h3>韩方称事前不知特朗普缩减联合军演的表态</h3>
+<p>
+ | 来源: http://www.glparis.cn/blog/20260904-137.shtml
+</p>
+
+<h3>日本大饭核电站3号机组公布发电机异常原因为励磁机部件损坏</h3>
+<p>
+ | 来源: http://mj.scminghua.cn/blog/20260904-302.shtml
+</p>
+
+<h3>“鸿鹄03星”成功入轨 烽火通信下一代天基承载网解决方案启动在轨验证</h3>
+<p>
+ | 来源: http://mysql.china868.com/blog/20260904-524.shtml
+</p>
+
+<h3>伊朗官员：向美军提供任何便利都等同于协同美军行动</h3>
+<p>
+ | 来源: http://tms.862156.net/blog/20260904-893.shtml
+</p>
+
+<h3>韩国SK海力士股价尾盘跌幅扩大至10%</h3>
+<p>
+ | 来源: http://www.hidier.com/blog/20260904-702.shtml
+</p>
+
+<h3>市场监管总局：1至7月依法办结垄断协议和滥用市场支配地位案件13件</h3>
+<p>
+ | 来源: http://www.xdpsoft.com/blog/20260904-666.shtml
+</p>
+
+<h3>我国牵头制定！全球首个针对客船涂装技术的国际标准发布</h3>
+<p>
+ | 来源: http://jsxxwy.com/blog/20260904-828.shtml
+</p>
+
+<h3>蚂蚁集团成立智宝科技公司，含AI相关业务</h3>
+<p>
+ | 来源: http://www.bj-cst.com/blog/20260904-592.shtml
+</p>
+
+<h3>江苏银行股价创历史新高</h3>
+<p>
+ | 来源: http://www.sypdsl.com/blog/20260904-726.shtml
+</p>

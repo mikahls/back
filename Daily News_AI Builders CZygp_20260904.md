@@ -1,0 +1,502 @@
+<h1> AI Builders Digest 今日热点快报</h1>
+<p><strong>2026年09月04日 22时46分01秒(UTC+8)</strong></p>
+<hr>
+<h3>精选丨孙建波：围绕人工智能主线 从硬件到应用再到行业影响进行布局</h3>
+<p>
+ | 来源: http://bjwtht.com/blog/20260904-629.shtml
+</p>
+
+<h3>精选丨孙建波：反弹尚未结束 市场在震荡中进行再平衡</h3>
+<p>
+ | 来源: http://dl.drsky.cc/blog/20260904-543.shtml
+</p>
+
+<h3>创业板震荡反弹涨超1% ，CPO与稀土概念集体走强丨复盘论</h3>
+<p>
+ | 来源: http://www.skygp.com/blog/20260904-759.shtml
+</p>
+
+<h3>陪跑6年 多轮加码宇树科技 他坦言王兴兴就是他们喜欢的技术男 ｜ 投资人说</h3>
+<p>
+ | 来源: http://021wfz.com/blog/20260904-274.shtml
+</p>
+
+<h3>稳汇率还是保财政？日本央行的两难抉择</h3>
+<p>
+ | 来源: http://www.hbms.cn/blog/20260904-347.shtml
+</p>
+
+<h3>苹果AI入华步伐或加速 如何搅动国内智能终端市场“风云”？| 夜话</h3>
+<p>
+ | 来源: http://wmh.cn/blog/20260904-573.shtml
+</p>
+
+<h3>2026进博会上海会议11月6日至9日启幕</h3>
+<p>
+ | 来源: http://www.cqydcy.com/blog/20260904-903.shtml
+</p>
+
+<h3>财经夜行线0814丨苹果AI工具入华或加速 日本央行9月加息预期升温</h3>
+<p>
+ | 来源: http://shopos.sk7.china868.com/blog/20260904-357.shtml
+</p>
+
+<h3>谈股论金0814丨八月修复反弹上半场收官 下半场行情是否值得期待？</h3>
+<p>
+ | 来源: http://xhout.neteasy.net.cn/blog/20260904-393.shtml
+</p>
+
+<h3>今日股市0814丨沪指盘中缩量回踩3900 下周能否继续上行？</h3>
+<p>
+ | 来源: http://www.safessl.cn/blog/20260904-147.shtml
+</p>
+
+<h3>香港股票分析师协会副主席潘铁珊：恒指未能守稳26000点 技术回吐压力持续丨港股收市</h3>
+<p>
+ | 来源: http://www.dhqlqx.com/blog/20260904-523.shtml
+</p>
+
+<h3>全球瞭望：韩国综指强劲反弹重回“牛市” AI热潮卷土重来？</h3>
+<p>
+ | 来源: http://www.goldenflame.com.cn/blog/20260904-402.shtml
+</p>
+
+<h3>尾市盘点：主要股指震荡收红 大盘酝酿第二波反攻？</h3>
+<p>
+ | 来源: http://www.etmval.com/blog/20260904-122.shtml
+</p>
+
+<h3>曾逸崇：拥抱科技 等待主升浪 看好算力租赁 AI电源板块</h3>
+<p>
+ | 来源: http://w.xfgzs.vip/blog/20260904-217.shtml
+</p>
+
+<h3>刘翀：股指仍处于震荡期 板块轮动加快 上涨持续性较弱</h3>
+<p>
+ | 来源: http://fncy.com/blog/20260904-237.shtml
+</p>
+
+<h3>李龙拴：大盘处于震荡格局下的结构性轮动 看好大金融 大消费板块</h3>
+<p>
+ | 来源: http://vrtop888.sk8.china868.com/blog/20260904-108.shtml
+</p>
+
+<h3>2026年8月14日《市场零距离》下午</h3>
+<p>
+ | 来源: http://www.glparis.cn/blog/20260904-137.shtml
+</p>
+
+<h3>CPO概念再度走强 上行空间能否进一步打开？|市场辩论会</h3>
+<p>
+ | 来源: http://www.xdpsoft.com/blog/20260904-666.shtml
+</p>
+
+<h3>中企出海结构重塑 “虹桥服务” 放大开放枢纽门户优势</h3>
+<p>
+ | 来源: http://XJaewqpg.sk7.china868.com/blog/20260904-900.shtml
+</p>
+
+<h3>算力供需缺口凸显叠加国产替代 国产AI芯片有望迎价值重估|行业风口</h3>
+<p>
+ | 来源: http://www.tjsatou.com/blog/20260904-307.shtml
+</p>
+
+<h3>李泽铭：港股短线25000点附近整固 权重股业绩不及预期拖累大市|港股连线</h3>
+<p>
+ | 来源: http://mysql55.sk7.china868.com/blog/20260904-993.shtml
+</p>
+
+<h3>AI算力金属持续活跃 如何挖掘相关机会？</h3>
+<p>
+ | 来源: http://XJ5dtz00.sk7.china868.com/blog/20260904-541.shtml
+</p>
+
+<h3>地缘扰动叠加库存压力 原油走强后震荡调整｜期货周刊</h3>
+<p>
+ | 来源: http://www.phukiensonyalpha.com/blog/20260904-881.shtml
+</p>
+
+<h3>影视院线概念领跌 “暑期档”效应结束了？</h3>
+<p>
+ | 来源: http://fncy.sk7.china868.com/blog/20260904-101.shtml
+</p>
+
+<h3>中际旭创连续入股PCB和散热材料龙头 透露什么信号？</h3>
+<p>
+ | 来源: http://www.bothcapital.com/blog/20260904-777.shtml
+</p>
+
+<h3>AI需求预期激增叠加半年报报喜 稀土板块行情能否再启？</h3>
+<p>
+ | 来源: http://bjcst.sk8.china868.com/blog/20260904-123.shtml
+</p>
+
+<h3>市场聚焦：沪指在年线附近反弹遇阻 会有二次探底吗？</h3>
+<p>
+ | 来源: http://www.lonzvalve.com/blog/20260904-312.shtml
+</p>
+
+<h3>2026年8月14日《市场零距离》上午</h3>
+<p>
+ | 来源: http://www.feihuit.cn/blog/20260904-865.shtml
+</p>
+
+<h3>一财主播说| DeepSeek告别“白菜价”实行峰谷定价+最高11倍涨幅</h3>
+<p>
+ | 来源: http://www.prodigy.net.cn/blog/20260904-208.shtml
+</p>
+
+<h3>沪指年线下方宽幅震荡 市场主线何在？ | 午间论市</h3>
+<p>
+ | 来源: http://www.shrenzhong.cn/blog/20260904-757.shtml
+</p>
+
+<h3>李泽铭：港股资金回流海外AI上游 短期或区间整固 | 亚太时间</h3>
+<p>
+ | 来源: http://www.chinanewman.com/blog/20260904-753.shtml
+</p>
+
+<h3>市场存量博弈下 哑铃策略之外还有哪些选择？ | 市场纵贯线</h3>
+<p>
+ | 来源: http://xdpsoft.com/blog/20260904-322.shtml
+</p>
+
+<h3>美国7月PPI低于预期 国际金价震荡收跌｜工行连线</h3>
+<p>
+ | 来源: http://hfzbjx.com/blog/20260904-980.shtml
+</p>
+
+<h3>成品油裂差改善 石油炼化估值回归｜微研报</h3>
+<p>
+ | 来源: http://bj-cst.com/blog/20260904-557.shtml
+</p>
+
+<h3>MSCI公布指数季度调整名单｜焦点资讯</h3>
+<p>
+ | 来源: http://m.shanghuangmei.com/blog/20260904-163.shtml
+</p>
+
+<h3>机构策略：A股市场景气逻辑正在回归｜有看投</h3>
+<p>
+ | 来源: http://www.lkqihang.com/blog/20260904-862.shtml
+</p>
+
+<h3>一财主播说| 美国对进口无人机及零部件加征关税 最高100%！盟友待遇不同</h3>
+<p>
+ | 来源: http://www.hengaodebj.com/blog/20260904-444.shtml
+</p>
+
+<h3>黄俊：大盘冲高回落震荡加剧 上证年线附近或将反复整固｜微策略</h3>
+<p>
+ | 来源: http://www.bjwtht.com/blog/20260904-552.shtml
+</p>
+
+<h3>沪指周四放量失守5日均线 短线或仍以震荡整理为主？｜晨会博弈</h3>
+<p>
+ | 来源: http://XJtzylmv.sk7.china868.com/blog/20260904-864.shtml
+</p>
+
+<h3>宇树科技上市在即 机构最新筹码曝光</h3>
+<p>
+ | 来源: http://xjdown.sk7.china868.com/blog/20260904-339.shtml
+</p>
+
+<h3>【电视精编版】数智金融 向实而行 ——银行业AI应用服务实体经济高质量发展丨陆家嘴金融沙龙</h3>
+<p>
+ | 来源: http://tgtg.yanmochina.com/blog/20260904-883.shtml
+</p>
+
+<h3>2026年“数擎杯”上海数据开发利用与安全治理职工职业技能竞赛正式启动</h3>
+<p>
+ | 来源: http://tjgz.sk7.china868.com/blog/20260904-800.shtml
+</p>
+
+<h3>2026未来科学大奖揭晓 三位顶尖科学家获奖</h3>
+<p>
+ | 来源: http://hnxiaoxin.com/blog/20260904-533.shtml
+</p>
+
+<h3>峰值价格最高涨至27元 DeepSeek调价方案落地 大模型“涨价潮”来了？| 夜话</h3>
+<p>
+ | 来源: http://safessl.cn/blog/20260904-400.shtml
+</p>
+
+<h3>生态环境部：加快推进全国碳市场建设</h3>
+<p>
+ | 来源: http://www.lianfengfeiye.com/blog/20260904-766.shtml
+</p>
+
+<h3>财经夜行线0813丨DeepSeek调价方案落地 国产大模型价格战将迎拐点？</h3>
+<p>
+ | 来源: http://bluedon.sk8.china868.com/blog/20260904-151.shtml
+</p>
+
+<h3>谈股论金0813丨大盘考验年线 八月修复行情进入“深水区”？</h3>
+<p>
+ | 来源: http://www.nansinet.com/blog/20260904-294.shtml
+</p>
+
+<h3>公司与行业0813丨放量冲高回落 调整是机会还是风险？</h3>
+<p>
+ | 来源: http://www.au-di.com/blog/20260904-680.shtml
+</p>
+
+<h3>今日股市0813丨指数午后全线放量回落 短期会转为震荡调整吗？</h3>
+<p>
+ | 来源: http://xyzy.zzhddz.com/blog/20260904-748.shtml
+</p>
+
+<h3>三大指数放量高开低， CXO、医疗服务概念走强丨复盘论</h3>
+<p>
+ | 来源: http://www.yf-syc.com/blog/20260904-574.shtml
+</p>
+
+<h3>光大证券国际证券策略师伍礼贤：港股窄幅震荡 回调或未完成丨港股收市</h3>
+<p>
+ | 来源: http://www.viger.cn/blog/20260904-371.shtml
+</p>
+
+<h3>全球瞭望：美国7月CPI通胀全面符合预期 美联储9月加息预期进一步降温？</h3>
+<p>
+ | 来源: http://zjgcyl.com/blog/20260904-877.shtml
+</p>
+
+<h3>尾市盘点：主要股指全线下挫 沪指收跌0.5% 年线由强支撑转为强压力？</h3>
+<p>
+ | 来源: http://scmjm.scminghua.cn/blog/20260904-358.shtml
+</p>
+
+<h3>种永：情绪逐步恢复 结构行情持续</h3>
+<p>
+ | 来源: http://www.yowelt.com/blog/20260904-288.shtml
+</p>
+
+<h3>董晓：超跌反弹告一段落 加仓需谨慎</h3>
+<p>
+ | 来源: http://www.2738128.com/blog/20260904-324.shtml
+</p>
+
+<h3>高乐：科创结构性强势 看好AI应用</h3>
+<p>
+ | 来源: http://mysql.china868.com/blog/20260904-524.shtml
+</p>
+
+<h3>2026年8月13日《市场零距离》下午</h3>
+<p>
+ | 来源: http://chinajinxian.com/blog/20260904-780.shtml
+</p>
+
+<h3>港股维持震荡整固 短期能否突破向上？丨港股在线</h3>
+<p>
+ | 来源: http://tjmws.com/blog/20260904-513.shtml
+</p>
+
+<h3>算力和医药反复活跃 谁是当下更优方向？丨市场辩论会</h3>
+<p>
+ | 来源: http://www.hantec.com.cn/blog/20260904-589.shtml
+</p>
+
+<h3>AI应用商业化按下“快进键” 如何把握产业链投资机遇？丨行业风口</h3>
+<p>
+ | 来源: http://duanhonggang.sk8.china868.com/blog/20260904-979.shtml
+</p>
+
+<h3>一财主播说 | 宇树科技中签份额被黄牛炒到410元 这里面都是风险！千万要拒绝“灰色产物”</h3>
+<p>
+ | 来源: http://www.jingyinyang.com/blog/20260904-544.shtml
+</p>
+
+<h3>光大期货：天气炒作继续升温 玉米市场外强内弱</h3>
+<p>
+ | 来源: http://china-geya.com/blog/20260904-528.shtml
+</p>
+
+<h3>AI应用板块连续活跃 持续性如何？</h3>
+<p>
+ | 来源: http://www.antu.com.cn/blog/20260904-716.shtml
+</p>
+
+<h3>PCB 存储 MLCC板块全线走高 硬科技行情回来了？</h3>
+<p>
+ | 来源: http://mssql.sk7.china868.com/blog/20260904-385.shtml
+</p>
+
+<h3>市场聚焦：市场放量上涨 反弹动能是否充沛 向上空间会有多大？</h3>
+<p>
+ | 来源: http://www.szslewingbearing.com/blog/20260904-347.shtml
+</p>
+
+<h3>预告：数智金融 向实而行 ——银行业AI应用服务实体经济高质量发展丨陆家嘴金融沙龙</h3>
+<p>
+ | 来源: http://www.saner.cn/blog/20260904-782.shtml
+</p>
+
+<h3>400万美元“买插队”！巴拿马运河为何突发反季节危机？美东航线暴涨3倍背后真相︱一探</h3>
+<p>
+ | 来源: http://www.dzlg.net/blog/20260904-887.shtml
+</p>
+
+<h3>一财主播说| 手机自己转头拍视频？荣耀发布“全球首款机器人手机” 9999元起售 你会种草吗？</h3>
+<p>
+ | 来源: http://www.idcvisa.com/blog/20260904-214.shtml
+</p>
+
+<h3>一财主播说| 婚姻登记搬进了银行 便民与行业创新双向破局</h3>
+<p>
+ | 来源: http://www.dalianmingteng.com/blog/20260904-552.shtml
+</p>
+
+<h3>上证指数年线争夺激烈 此轮反弹能否延续？ | 午间论市</h3>
+<p>
+ | 来源: http://bjcst.sk7.china868.com/blog/20260904-927.shtml
+</p>
+
+<h3>建设银行马骥：美元反弹有限 日元缺失升值动力 | 市场纵贯线</h3>
+<p>
+ | 来源: http://nanjing.89ix.com/blog/20260904-239.shtml
+</p>
+
+<h3>光大期货侯雪玲：商品震荡偏强 能化领涨市场 | 大宗商品</h3>
+<p>
+ | 来源: http://www.soxworld-tj.com/blog/20260904-661.shtml
+</p>
+
+<h3>林铭添：美元指数维持弱势震荡 贵金属开启新一波上升行情</h3>
+<p>
+ | 来源: http://www.sypdsl.com/blog/20260904-726.shtml
+</p>
+
+<h3>美国7月CPI环比上涨</h3>
+<p>
+ | 来源: http://w.xfgzs.vip/blog/20260904-737.shtml
+</p>
+
+<h3>金价延续涨势 专家：后市有望冲击4500-5000美元</h3>
+<p>
+ | 来源: http://www.junaochina.com/blog/20260904-104.shtml
+</p>
+
+<h3>宇树科技打新成绩单出炉 机构踊跃参与</h3>
+<p>
+ | 来源: http://www.bjdjhc.com/blog/20260904-719.shtml
+</p>
+
+<h3>2026年8月13日《市场零距离》上午</h3>
+<p>
+ | 来源: http://www.ykbees.com/blog/20260904-230.shtml
+</p>
+
+<h3>通胀符合预期 国际金价收涨｜工行连线</h3>
+<p>
+ | 来源: http://www.wzas119.com/blog/20260904-546.shtml
+</p>
+
+<h3>煤炭十五五规划落地 煤企有望向综合能源运营商转型｜微研报</h3>
+<p>
+ | 来源: http://www.riwaymetal.com/blog/20260904-787.shtml
+</p>
+
+<h3>央行：及时谋划出台务实管用的增量政策 加大逆周期调节力度｜焦点资讯</h3>
+<p>
+ | 来源: http://www.nisang.com/blog/20260904-805.shtml
+</p>
+
+<h3>机构策略：科技主线进入“去伪存真”阶段｜有看投</h3>
+<p>
+ | 来源: http://kaimori.com.cn/blog/20260904-341.shtml
+</p>
+
+<h3>陈兆凌：两市缩量震荡整体偏强 板块或保持轮动｜微策略</h3>
+<p>
+ | 来源: http://www.yf-syc.com/blog/20260904-766.shtml
+</p>
+
+<h3>胡涛：市场多头并进 斜率健康 趋势不改｜微策略</h3>
+<p>
+ | 来源: http://sxmi.sk8.china868.com/blog/20260904-465.shtml
+</p>
+
+<h3>温天纳：外围扰动叠加中报窗口期 港股短期或维持震荡格局｜港股微策略</h3>
+<p>
+ | 来源: http://dh-huac.com/blog/20260904-472.shtml
+</p>
+
+<h3>战略钨资源供需长期紧平衡 厦门钨业、中钨高新等受益于海外断供涨价催化</h3>
+<p>
+ | 来源: http://XJfcksp9.sk7.china868.com/blog/20260904-847.shtml
+</p>
+
+<h3>美国7月CPI全面符合预期 美联储9月加息预期进一步降温</h3>
+<p>
+ | 来源: http://onponder.sk8.china868.com/blog/20260904-612.shtml
+</p>
+
+<h3>财经夜行线0812丨国际金价重返4400美元 美国7月通胀数据出炉</h3>
+<p>
+ | 来源: https://github.com/mikahls/back/tree/main
+</p>
+
+<h3>谈股论金0812丨市场缩量反弹 存量行情中反弹空间还有多大？</h3>
+<p>
+ | 来源: http://www.obocan.com/blog/20260904-206.shtml
+</p>
+
+<h3>中汽协：7月汽车出口增长亮眼 新能源出海势头强劲</h3>
+<p>
+ | 来源: http://boclight.com/blog/20260904-823.shtml
+</p>
+
+<h3>美国7月CPI落地 美联储9月加息预期“落空”？</h3>
+<p>
+ | 来源: http://www.2003.com.cn/blog/20260904-411.shtml
+</p>
+
+<h3>国际金价重返4400美元 黄金或迎新一轮“牛市”起点？| 夜话</h3>
+<p>
+ | 来源: http://erp.scminghua.cn/blog/20260904-775.shtml
+</p>
+
+<h3>双创指数均涨超1%，“光通信”全天走强丨复盘论</h3>
+<p>
+ | 来源: http://www.lehon.com.cn/blog/20260904-965.shtml
+</p>
+
+<h3>盈立证券研究部执行董事黄德几：恒指短线获利回吐 25000点附近获支撑丨港股收市</h3>
+<p>
+ | 来源: http://www.hanlonggf.com/blog/20260904-896.shtml
+</p>
+
+<h3>全球瞭望：EIA大幅上调年内油价预期 美伊冲突影响或持续到明年末？</h3>
+<p>
+ | 来源: http://www.hengmingdianli.com/blog/20260904-659.shtml
+</p>
+
+<h3>尾市盘点：A股主要指数红盘震荡 双创领涨 沪指蓄势挑战年线阻力？</h3>
+<p>
+ | 来源: http://zhijiandaxi.com/blog/20260904-273.shtml
+</p>
+
+<h3>蒋亦凡：大盘震荡筑底中 蓄势挑战年线阻力 关注创新药 券商</h3>
+<p>
+ | 来源: http://itleader2.sk8.china868.com/blog/20260904-903.shtml
+</p>
+
+<h3>刘奎军：上证指数遇年线面临调整压力 关注创新药及券商</h3>
+<p>
+ | 来源: http://dnscnc.com/blog/20260904-676.shtml
+</p>
+
+<h3>张翠霞：双创指数二浪调整末端 突破前高开启三浪攻击</h3>
+<p>
+ | 来源: http://mysql.sk7.china868.com/blog/20260904-214.shtml
+</p>
+
+<h3>2026年8月12日《市场零距离》下午</h3>
+<p>
+ | 来源: http://autoweb.china868.com/blog/20260904-364.shtml
+</p>
+
+<h3>预告：信任的锚点：人工智能治理可以走向“标准化”吗？丨两说</h3>
+<p>
+ | 来源: http://zj-creat.com/blog/20260904-733.shtml
+</p>
