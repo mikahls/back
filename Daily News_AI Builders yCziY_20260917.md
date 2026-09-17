@@ -1,0 +1,502 @@
+<h1> AI Builders Digest 今日热点快报</h1>
+<p><strong>2026年09月17日 15时11分30秒(UTC+8)</strong></p>
+<hr>
+<h3>中信建投：当前行业处于三重共振放量期 继续看好液冷板块配置价值</h3>
+<p>
+ | 来源: http://www.bentuhang.com/blog/20260917-523.shtml
+</p>
+
+<h3>劲方医药：GFH375单药治疗突变型非小细胞肺癌的II期试验更新数据登陆WCLC口头报告</h3>
+<p>
+ | 来源: http://www.nansinet.com/blog/20260917-348.shtml
+</p>
+
+<h3>日韩股市集体低开</h3>
+<p>
+ | 来源: http://onponder.sk8.china868.com/blog/20260917-307.shtml
+</p>
+
+<h3>中信证券：未来在AI等高端需求的推动下，我国光通信行业将迎来发展新阶段</h3>
+<p>
+ | 来源: http://liushui.au08.cn/blog/20260917-399.shtml
+</p>
+
+<h3>中信证券：仍看好在折叠屏等新品支撑下的2026-27年苹果硬件创新周期</h3>
+<p>
+ | 来源: http://hzjia.cn/blog/20260917-543.shtml
+</p>
+
+<h3>中信证券：国内洁净室头部企业半导体相关订单大幅放量，半导体设备需求有望跟进</h3>
+<p>
+ | 来源: http://isri-shuangdi.com/blog/20260917-780.shtml
+</p>
+
+<h3>供给刚性与算力需求共振 战略小金属迎价值重估</h3>
+<p>
+ | 来源: http://huafen.au08.cn/blog/20260917-573.shtml
+</p>
+
+<h3>全球黄金ETF资金净流入创纪录 黄金短期交易逻辑出现变化</h3>
+<p>
+ | 来源: http://www.viger.cn/blog/20260917-709.shtml
+</p>
+
+<h3>日经指数期货在新加坡交易所开盘下跌135点</h3>
+<p>
+ | 来源: http://mysql.sk7.china868.com/blog/20260917-636.shtml
+</p>
+
+<h3>美国前参议院共和党领袖麦康奈尔重返参议院</h3>
+<p>
+ | 来源: http://www.finermed.com/blog/20260917-681.shtml
+</p>
+
+<h3>一架进入立陶宛领空的不明无人机被击毁</h3>
+<p>
+ | 来源: http://www.angelkin.net/blog/20260917-382.shtml
+</p>
+
+<h3>美国防部报告披露美军先进武器库存出现短缺</h3>
+<p>
+ | 来源: http://hellighting.com/blog/20260917-775.shtml
+</p>
+
+<h3>外资瞄准中国ETF市场 多路机构加码布局</h3>
+<p>
+ | 来源: http://www.yihuiforwarding.com/blog/20260917-841.shtml
+</p>
+
+<h3>泽连斯基称若得到真正止战承诺则愿支持局势降温</h3>
+<p>
+ | 来源: http://kongtiaoqz.au18.cn/blog/20260917-264.shtml
+</p>
+
+<h3>现货黄金失守4290美元/盎司</h3>
+<p>
+ | 来源: http://www.junboelectronic.com/blog/20260917-450.shtml
+</p>
+
+<h3>百心安：与申淇医疗订立战略合作协议，推进BioHeart支架的商业化及临床应用</h3>
+<p>
+ | 来源: http://jiezhuang.au08.cn/blog/20260917-691.shtml
+</p>
+
+<h3>A股缩量蓄势等待新催化 机构判断景气投资有望回归</h3>
+<p>
+ | 来源: http://www.hzjia.cn/blog/20260917-943.shtml
+</p>
+
+<h3>铠侠据悉考虑赴美上市 或募资至少100亿美元</h3>
+<p>
+ | 来源: http://www.cnwinup.com/blog/20260917-662.shtml
+</p>
+
+<h3>经济日报金观平：抓住十万亿元级消费蓝海新机遇</h3>
+<p>
+ | 来源: http://aiwoba.haoapp123.com/blog/20260917-415.shtml
+</p>
+
+<h3>骨髓细胞经特殊处理有望减少骨质疏松类骨折</h3>
+<p>
+ | 来源: http://www.ngmtjc.com/blog/20260917-246.shtml
+</p>
+
+<h3>激光“吸尘器”能加速伤口清洁和愈合</h3>
+<p>
+ | 来源: http://dx.anchoryun.com/blog/20260917-544.shtml
+</p>
+
+<h3>激光退火把光隔离器直接集成于硅光子芯片</h3>
+<p>
+ | 来源: http://www.etmval.com/blog/20260917-790.shtml
+</p>
+
+<h3>“嫦娥六号”月背月壤样品落户维也纳联合国总部</h3>
+<p>
+ | 来源: http://www.bjszxc.com/blog/20260917-786.shtml
+</p>
+
+<h3>摩根士丹利改为预计美联储在9月和12月各加息25个基点</h3>
+<p>
+ | 来源: http://www.yhgsyy.com/blog/20260917-632.shtml
+</p>
+
+<h3>伊朗：在沙特要求下，涉霍尔木兹海峡商运航线会议推迟</h3>
+<p>
+ | 来源: http://www.19986.net/blog/20260917-502.shtml
+</p>
+
+<h3>楼市新政后上市房企首单再融资 保利发展拟发行五十亿元定向可转债</h3>
+<p>
+ | 来源: http://kongtiaojh.au18.cn/blog/20260917-745.shtml
+</p>
+
+<h3>海外“超级央行周”来临 A股高股息板块迎阶段性修复行情</h3>
+<p>
+ | 来源: http://www.jshaosheng.com.cn/blog/20260917-335.shtml
+</p>
+
+<h3>国内原油期货首次升破900元/桶 推高化工品价格</h3>
+<p>
+ | 来源: http://yanglaojdz.au18.cn/blog/20260917-292.shtml
+</p>
+
+<h3>8月中国快递发展指数同比增长1.5%</h3>
+<p>
+ | 来源: http://www.mdj128.com/blog/20260917-257.shtml
+</p>
+
+<h3>墨西哥西南近海地区发生5.5级地震</h3>
+<p>
+ | 来源: http://ssj123.sk7.china868.com/blog/20260917-748.shtml
+</p>
+
+<h3>谷歌允许所有工程师使用Anthropic的Claude</h3>
+<p>
+ | 来源: http://wsclyq.com/blog/20260917-297.shtml
+</p>
+
+<h3>供需偏紧持续推升电子布价格</h3>
+<p>
+ | 来源: http://www.jxypm.com/blog/20260917-341.shtml
+</p>
+
+<h3>美伊各执一词，特朗普释放谈判信号，伊朗称满足条件前绝不谈</h3>
+<p>
+ | 来源: http://www.bjdjhc.com/blog/20260917-621.shtml
+</p>
+
+<h3>国产大模型竞争逻辑从拼价格转向拼生态</h3>
+<p>
+ | 来源: http://021shtn.com/blog/20260917-443.shtml
+</p>
+
+<h3>全球最大的白银ETF iShares Silver Trust持仓量较前日减少25.28吨</h3>
+<p>
+ | 来源: http://gmcccc.cn/blog/20260917-840.shtml
+</p>
+
+<h3>助力投资者一键布局算力赛道 首批创业板算力ETF相继成立</h3>
+<p>
+ | 来源: http://www.vct-tech.com/blog/20260917-682.shtml
+</p>
+
+<h3>公募基金登记业务进一步完善</h3>
+<p>
+ | 来源: http://www.petrol-coke.com/blog/20260917-241.shtml
+</p>
+
+<h3>新能源商业车险自主定价系数范围有望看齐燃油车</h3>
+<p>
+ | 来源: http://kongyajicz.au18.cn/blog/20260917-447.shtml
+</p>
+
+<h3>期货新规引领行业转型提质</h3>
+<p>
+ | 来源: http://wsclyq.com/blog/20260917-329.shtml
+</p>
+
+<h3>金融业夯实房地产市场平稳健康发展地基</h3>
+<p>
+ | 来源: http://metfin.com.hk/blog/20260917-815.shtml
+</p>
+
+<h3>银行业以客群专属、区域限定产品革新存款经营 大额存单告别统一定价</h3>
+<p>
+ | 来源: http://kongyajixx.au18.cn/blog/20260917-437.shtml
+</p>
+
+<h3>健全“长钱长投”生态 筑牢资本市场压舱石</h3>
+<p>
+ | 来源: http://hupom.au08.cn/blog/20260917-688.shtml
+</p>
+
+<h3>业绩兑现叠加科技主线增强A股韧性</h3>
+<p>
+ | 来源: http://www.kayin.com.cn/blog/20260917-611.shtml
+</p>
+
+<h3>直面业绩分化 主动权益类基金的“等待与希望”</h3>
+<p>
+ | 来源: http://jiedixiang.89ix.com/blog/20260917-911.shtml
+</p>
+
+<h3>资金大进大出成常态 倒逼ETF运作管理升级</h3>
+<p>
+ | 来源: http://www.ynwax.com/blog/20260917-838.shtml
+</p>
+
+<h3>ETF盛宴中的机构投资者</h3>
+<p>
+ | 来源: http://finermed.com/blog/20260917-249.shtml
+</p>
+
+<h3>基金销售机构百强出炉 首现非货保有规模2万亿级巨头</h3>
+<p>
+ | 来源: http://jiaquanhz.au08.cn/blog/20260917-430.shtml
+</p>
+
+<h3>经济日报：新车竞赛该“踩刹车”了</h3>
+<p>
+ | 来源: http://kakou.37ix.com.cn/blog/20260917-293.shtml
+</p>
+
+<h3>“双节”预订持续升温 旅游板块进入旺季验证期</h3>
+<p>
+ | 来源: http://crm.vigorephoto.com/blog/20260917-142.shtml
+</p>
+
+<h3>美联储加息箭在弦上 A股后市把握三类投资机遇</h3>
+<p>
+ | 来源: http://www.hzmhong.com/blog/20260917-605.shtml
+</p>
+
+<h3>银行秋招风向生变 AI复合型人才受青睐</h3>
+<p>
+ | 来源: http://bj-cst.com/blog/20260917-580.shtml
+</p>
+
+<h3>委内瑞拉超600万学生开启新学年 地震灾区学生妥善安置</h3>
+<p>
+ | 来源: http://www.chinanewman.com/blog/20260917-956.shtml
+</p>
+
+<h3>前8个月债券股票融资较快增长 金融总量合理增长 社会融资条件保持宽松</h3>
+<p>
+ | 来源: http://www.cqytcp.com/blog/20260917-713.shtml
+</p>
+
+<h3>美联储本周加息的概率升至92.4%</h3>
+<p>
+ | 来源: http://tongfengxc.au18.cn/blog/20260917-677.shtml
+</p>
+
+<h3>机构：美联储加息或致标普500下跌10%</h3>
+<p>
+ | 来源: http://justop.vip/blog/20260917-845.shtml
+</p>
+
+<h3>以军袭击黎南部联黎部队阵地附近区域</h3>
+<p>
+ | 来源: http://kongyajixz.au18.cn/blog/20260917-923.shtml
+</p>
+
+<h3>伊朗高级官员：除非满足条件 否则绝不谈判</h3>
+<p>
+ | 来源: http://paimen.jk56.org/blog/20260917-131.shtml
+</p>
+
+<h3>摩根士丹利预测美联储将在9月和12月加息</h3>
+<p>
+ | 来源: http://www.takhin.com/blog/20260917-659.shtml
+</p>
+
+<h3>伊朗官员：两艘渔船遭无人机袭击 多名渔民失踪</h3>
+<p>
+ | 来源: http://tongfengcc.au18.cn/blog/20260917-791.shtml
+</p>
+
+<h3>新疆和田地区皮山县发生3.0级地震</h3>
+<p>
+ | 来源: http://biaozhi.au08.cn/blog/20260917-140.shtml
+</p>
+
+<h3>美国空军部长称美拥有“在轨”太空控制武器</h3>
+<p>
+ | 来源: http://www.pures.com.cn/blog/20260917-932.shtml
+</p>
+
+<h3>美军否认一艘油轮穿越霍尔木兹海峡时触雷</h3>
+<p>
+ | 来源: https://blog.csdn.net/seoppg/article/details/148493454
+</p>
+
+<h3>Shield AI洽谈按至少200亿美元估值融资</h3>
+<p>
+ | 来源: http://yanglaosx.au18.cn/blog/20260917-791.shtml
+</p>
+
+<h3>特朗普称愿与伊朗谈判 提出美方要收“护航补偿”</h3>
+<p>
+ | 来源: http://www.jinshuai.com/blog/20260917-675.shtml
+</p>
+
+<h3>武契奇：将于9月27日辞去塞尔维亚总统职务</h3>
+<p>
+ | 来源: http://menxy.au08.cn/blog/20260917-507.shtml
+</p>
+
+<h3>也门胡塞武装称拦截两批沙特战机编队</h3>
+<p>
+ | 来源: http://peixun.sk8.china868.com/blog/20260917-810.shtml
+</p>
+
+<h3>以太坊升破2600美元，日内涨5.46%</h3>
+<p>
+ | 来源: http://migun.net.cn/blog/20260917-372.shtml
+</p>
+
+<h3>美元指数14日上涨</h3>
+<p>
+ | 来源: http://paimen.89ix.com/blog/20260917-511.shtml
+</p>
+
+<h3>国际油价14日上涨</h3>
+<p>
+ | 来源: http://www.sq-vision.cn/blog/20260917-969.shtml
+</p>
+
+<h3>美财政部宣布将俄罗斯外贸银行列为制裁目标</h3>
+<p>
+ | 来源: http://sk7.china868.com/blog/20260917-457.shtml
+</p>
+
+<h3>毛里塔尼亚外交部召见伊朗驻毛塔大使</h3>
+<p>
+ | 来源: http://www.szletto.com/blog/20260917-431.shtml
+</p>
+
+<h3>联合国伊朗问题独立调查团敦促美以遵守国际法</h3>
+<p>
+ | 来源: http://hzdingzhi.cn/blog/20260917-210.shtml
+</p>
+
+<h3>伊朗称霍尔木兹海峡已被封锁并处于“智能管控”中</h3>
+<p>
+ | 来源: http://xycyzl.com/blog/20260917-681.shtml
+</p>
+
+<h3>在岸人民币兑美元较上周五夜盘收盘跌6点</h3>
+<p>
+ | 来源: http://tongfoxiang.89ix.com/blog/20260917-319.shtml
+</p>
+
+<h3>纽约联储：交易台计划在9月15日至10月14日期间进行约156亿美元的再投资购买</h3>
+<p>
+ | 来源: http://tongfengxx.au18.cn/blog/20260917-901.shtml
+</p>
+
+<h3>OpenAI收购了一家名为Glass Imaging的初创公司</h3>
+<p>
+ | 来源: http://mssql.sk7.china868.com/blog/20260917-111.shtml
+</p>
+
+<h3>礼来高管称，公司目前在口服肥胖治疗市场的新处方中占据超过30%的份额</h3>
+<p>
+ | 来源: http://www.intransing.com/blog/20260917-948.shtml
+</p>
+
+<h3>一架小型飞机在德国坠毁 致3人死亡</h3>
+<p>
+ | 来源: http://hf-hj.com/blog/20260917-983.shtml
+</p>
+
+<h3>国际原子能机构批准东帝汶入会申请</h3>
+<p>
+ | 来源: http://jing.au08.cn/blog/20260917-886.shtml
+</p>
+
+<h3>泽连斯基：若俄方停止袭击乌关键基础设施 乌方将对等停止</h3>
+<p>
+ | 来源: http://brfsgs.cn/blog/20260917-953.shtml
+</p>
+
+<h3>花旗、高盛和摩根大通等上调年末美债收益率预测</h3>
+<p>
+ | 来源: http://www.lyreclinerparts.com/blog/20260917-236.shtml
+</p>
+
+<h3>谷歌正研究在美国新墨西哥州建设数据中心的可能性</h3>
+<p>
+ | 来源: http://xhin.neteasy.net.cn/blog/20260917-584.shtml
+</p>
+
+<h3>比特币升破79000美元，日内涨2.82%</h3>
+<p>
+ | 来源: http://www.shenbijiang.com/blog/20260917-461.shtml
+</p>
+
+<h3>美国众议院议长约翰逊：将在本周末或下周初与人工智能企业高管举行会谈</h3>
+<p>
+ | 来源: http://duanhonggang.sk8.china868.com/blog/20260917-407.shtml
+</p>
+
+<h3>美国银行股价下跌5.7%，创2025年4月以来最大跌幅</h3>
+<p>
+ | 来源: http://gwmpa201.sk7.china868.com/blog/20260917-309.shtml
+</p>
+
+<h3>苹果推出Siri人工智能</h3>
+<p>
+ | 来源: http://feishui.37ix.com.cn/blog/20260917-778.shtml
+</p>
+
+<h3>特朗普：通胀源于拜登，除油价外物价正显著下行，伊冲突结束后油价将暴跌</h3>
+<p>
+ | 来源: http://www.mcpumps.cn/blog/20260917-233.shtml
+</p>
+
+<h3>年内超百家A股公司完成定增</h3>
+<p>
+ | 来源: http://www.ssj123.com/blog/20260917-972.shtml
+</p>
+
+<h3>特朗普：美国高端武器产量创历史新高，重点生产爱国者、萨德、战斧导弹</h3>
+<p>
+ | 来源: http://www.fspp.org.cn/blog/20260917-851.shtml
+</p>
+
+<h3>赣州海盛钨业股份有限公司启动上市辅导</h3>
+<p>
+ | 来源: http://tjmws.com/blog/20260917-343.shtml
+</p>
+
+<h3>青岛海永顺创新科技股份有限公司启动上市辅导</h3>
+<p>
+ | 来源: http://yushui.au08.cn/blog/20260917-612.shtml
+</p>
+
+<h3>谷歌云宣布数据流批处理作业的暂停/恢复功能正式上线</h3>
+<p>
+ | 来源: http://www.yf-syc.com/blog/20260917-694.shtml
+</p>
+
+<h3>Puig同意，按12亿欧元从Esteve收购Isdin</h3>
+<p>
+ | 来源: http://www.zlbigdata.com/blog/20260917-839.shtml
+</p>
+
+<h3>伊拉克北部库区遭5枚火箭弹袭击</h3>
+<p>
+ | 来源: http://hulanm.au08.cn/blog/20260917-457.shtml
+</p>
+
+<h3>丹麦首相：希望与美国通过合作解决格陵兰岛问题</h3>
+<p>
+ | 来源: http://niuwang.au08.cn/blog/20260917-194.shtml
+</p>
+
+<h3>Anthropic面向财务顾问推出的Claude产品</h3>
+<p>
+ | 来源: http://www.vjttek.com/blog/20260917-173.shtml
+</p>
+
+<h3>日本首相高市早苗将于17日改组内阁</h3>
+<p>
+ | 来源: http://au18.cn/blog/20260917-103.shtml
+</p>
+
+<h3>自动驾驶公司Waymo在拉斯维加斯推出公共乘车服务</h3>
+<p>
+ | 来源: http://topman.sk7.china868.com/blog/20260917-283.shtml
+</p>
+
+<h3>美国战略石油储备（SPR）的原油库存上周减少约360万桶</h3>
+<p>
+ | 来源: http://www.lnsynh.com/blog/20260917-940.shtml
+</p>
+
+<h3>美国司法部：雅培公司已同意支付超过3.84亿美元，以和解与其婴儿配方奶粉相关的指控</h3>
+<p>
+ | 来源: http://sz.sawenow.com/blog/20260917-891.shtml
+</p>
