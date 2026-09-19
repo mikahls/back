@@ -1,0 +1,502 @@
+<h1> AI Builders Digest 今日热点快报</h1>
+<p><strong>2026年09月19日 01时06分41秒(UTC+8)</strong></p>
+<hr>
+<h3>第二届知识产权执法国际交流大会将在长沙举办</h3>
+<p>
+ | 来源: http://jzhbl.com/blog/20260918-868.shtml
+</p>
+
+<h3>阿里集团：无招回归阿里千问办公消息不实</h3>
+<p>
+ | 来源: http://www.glmckj.cn/blog/20260918-268.shtml
+</p>
+
+<h3>迅捷兴：简易程序定增事项正在推进</h3>
+<p>
+ | 来源: http://kongyajisz.au18.cn/blog/20260918-329.shtml
+</p>
+
+<h3>文科股份：股东及一致行动人14.06%股份被司法冻结</h3>
+<p>
+ | 来源: http://www.fymer.com/blog/20260918-865.shtml
+</p>
+
+<h3>一艘悬挂巴拿马国旗的油轮在伊拉克领海遭无人机袭击</h3>
+<p>
+ | 来源: http://www.nankang.com.cn/blog/20260918-518.shtml
+</p>
+
+<h3>深华发A：公司主营业务目前经营情况正常</h3>
+<p>
+ | 来源: http://XJ24q3u9.sk7.china868.com/blog/20260918-623.shtml
+</p>
+
+<h3>Casey's美股盘前跌超10%</h3>
+<p>
+ | 来源: http://k-wah.com.cn/blog/20260918-872.shtml
+</p>
+
+<h3>泸天化：经营情况未发生重大变化</h3>
+<p>
+ | 来源: http://www.cnwinup.com/blog/20260918-377.shtml
+</p>
+
+<h3>大族激光：大族控股减持，持股比例触及1%整数倍</h3>
+<p>
+ | 来源: http://kongyajiyz.au18.cn/blog/20260918-455.shtml
+</p>
+
+<h3>深科技：子公司拟投资18.5亿元扩大高端存储芯片封测产能</h3>
+<p>
+ | 来源: http://www.poizoon.cn/blog/20260918-196.shtml
+</p>
+
+<h3>白宫频施压 史密森学会秘书长宣布辞职</h3>
+<p>
+ | 来源: http://neteasy.net.cn/blog/20260918-242.shtml
+</p>
+
+<h3>华特气体：张穗萍等实施减持计划，分别减持119.18万股、4275股、700股</h3>
+<p>
+ | 来源: http://www.grandasiametal.com/blog/20260918-909.shtml
+</p>
+
+<h3>阿里称无招回归阿里千问办公消息不实</h3>
+<p>
+ | 来源: http://www.globalbestway.com/blog/20260918-989.shtml
+</p>
+
+<h3>深科技：韩宗远退休离任，选举周庚申任第十届董事会董事长</h3>
+<p>
+ | 来源: http://jinshuai.com/blog/20260918-425.shtml
+</p>
+
+<h3>云煤能源：国内煤焦市场价格偏强运行</h3>
+<p>
+ | 来源: http://www.shunlijunjidian.com/blog/20260918-441.shtml
+</p>
+
+<h3>东诚药业：贝米肝素钠注射液上市申请获受理</h3>
+<p>
+ | 来源: http://xhin.neteasy.net.cn/blog/20260918-933.shtml
+</p>
+
+<h3>伊朗外交部谴责美军袭扰多艘伊朗油轮与商船</h3>
+<p>
+ | 来源: http://ocrvogue.com/blog/20260918-362.shtml
+</p>
+
+<h3>凯伦股份：董事、副总经理张勇减持完成，减持130万股占0.35%</h3>
+<p>
+ | 来源: http://www.hnxtgl.com/blog/20260918-522.shtml
+</p>
+
+<h3>蜀道装备：李恩泽辞去副总经理，持股占比0.0143%</h3>
+<p>
+ | 来源: http://dh-huac.com/blog/20260918-271.shtml
+</p>
+
+<h3>湖南长沙一非法代孕场所被查封 6名涉案人员被控制</h3>
+<p>
+ | 来源: http://jingxiangzixun.com/blog/20260918-364.shtml
+</p>
+
+<h3>广州：8月份每卖出100套二手房，就有64套一次性付款</h3>
+<p>
+ | 来源: http://www.cangyishu.com/blog/20260918-666.shtml
+</p>
+
+<h3>康欣新材：定期报告涉嫌违规被立案</h3>
+<p>
+ | 来源: http://www.dcsz.com.cn/blog/20260918-395.shtml
+</p>
+
+<h3>内蒙古锡林郭勒盟西乌珠穆沁旗发生4.6级地震 震源深度20公里</h3>
+<p>
+ | 来源: http://www.ngjjhb.com/blog/20260918-905.shtml
+</p>
+
+<h3>智象未来vivago R1全球上线</h3>
+<p>
+ | 来源: http://hzzhonghai.cn/blog/20260918-794.shtml
+</p>
+
+<h3>仕佳光子：鹤壁投资集团2026年9月减持触及1%刻度</h3>
+<p>
+ | 来源: http://www.njytp.com/blog/20260918-725.shtml
+</p>
+
+<h3>长江航运数据联盟在武汉成立</h3>
+<p>
+ | 来源: http://baoding.89ix.com/blog/20260918-474.shtml
+</p>
+
+<h3>红棉股份：股价异动受国际原糖价格上涨等因素关注</h3>
+<p>
+ | 来源: http://www.lpgtank.com/blog/20260918-925.shtml
+</p>
+
+<h3>以军称摧毁加沙多处武器储存设施和火箭弹发射阵地</h3>
+<p>
+ | 来源: http://www.poizoon.cn/blog/20260918-906.shtml
+</p>
+
+<h3>中重科技：常州津泓、沈惠萍拟减持公司不超过3%股份</h3>
+<p>
+ | 来源: http://www.sdzydc.com/blog/20260918-875.shtml
+</p>
+
+<h3>*ST卓然：立案调查初步查明财务信息涉嫌虚假记载，或触及重大违法强制退市</h3>
+<p>
+ | 来源: http://www.tjztzt.com/blog/20260918-917.shtml
+</p>
+
+<h3>伊朗称任何先进技术都无法突破其海峡监控体系</h3>
+<p>
+ | 来源: http://www.zlbigdata.com/blog/20260918-204.shtml
+</p>
+
+<h3>荣盛发展：荣盛建设2026年9月7日被动减持6300万股</h3>
+<p>
+ | 来源: http://loufen.au08.cn/blog/20260918-610.shtml
+</p>
+
+<h3>日本梅毒患者增加而药物短缺</h3>
+<p>
+ | 来源: http://wsclyq.com/blog/20260918-392.shtml
+</p>
+
+<h3>Meta美股盘前涨超4%</h3>
+<p>
+ | 来源: http://kakou.37ix.com.cn/blog/20260918-360.shtml
+</p>
+
+<h3>中国援卢旺达基加利市10公里道路改造项目开工</h3>
+<p>
+ | 来源: http://guiwenshi.jk56.org/blog/20260918-245.shtml
+</p>
+
+<h3>精艺股份：铜价上涨对经营不存在利好</h3>
+<p>
+ | 来源: http://www.imsilicon.com/blog/20260918-920.shtml
+</p>
+
+<h3>中百集团：近期经营情况正常</h3>
+<p>
+ | 来源: https://github.com/mikahls/back/tree/main
+</p>
+
+<h3>黑猫股份：煤焦油涨价推高成本并上调炭黑价格</h3>
+<p>
+ | 来源: http://www.xc-electric.cn/blog/20260918-981.shtml
+</p>
+
+<h3>上交所向星宇股份下发监管工作函</h3>
+<p>
+ | 来源: http://kongyajizj.au18.cn/blog/20260918-558.shtml
+</p>
+
+<h3>武契奇宣布解散国民议会并确认提前选举日期</h3>
+<p>
+ | 来源: http://www.wzjh9999.com/blog/20260918-715.shtml
+</p>
+
+<h3>马来西亚通信部长：马中人工智能合作为马带来切实利好</h3>
+<p>
+ | 来源: http://qieduanji.jk56.org/blog/20260918-497.shtml
+</p>
+
+<h3>美国中央司令部：没有任何美国海军军舰遭袭 摧毁10艘伊朗油轮</h3>
+<p>
+ | 来源: http://www.hzhuiming.com/blog/20260918-450.shtml
+</p>
+
+<h3>石药集团：SYH9102注射液获中国临床试验批准，每月给药一次</h3>
+<p>
+ | 来源: http://kongyajixx.au18.cn/blog/20260918-768.shtml
+</p>
+
+<h3>南京医药：2026年半年度每股派0.09元</h3>
+<p>
+ | 来源: http://kongtiaosq.au18.cn/blog/20260918-436.shtml
+</p>
+
+<h3>和而泰：前海投资认缴基金1500万元占27.3723%</h3>
+<p>
+ | 来源: http://www.glparis.cn/blog/20260918-585.shtml
+</p>
+
+<h3>中国房地产业协会代建分会副会长王俊峰：代建行业正从“红利驱动”转向“专业能力驱动”</h3>
+<p>
+ | 来源: http://www.ncqt.cn/blog/20260918-174.shtml
+</p>
+
+<h3>以色列称在死海铺设光缆监测地震</h3>
+<p>
+ | 来源: http://www.bodarpen.com/blog/20260918-914.shtml
+</p>
+
+<h3>需求保持扩张 我国物流市场预期呈现积极变化</h3>
+<p>
+ | 来源: http://tongfengzj.au18.cn/blog/20260918-536.shtml
+</p>
+
+<h3>中国海警圆满完成2026年北太平洋公海渔业执法巡航任务</h3>
+<p>
+ | 来源: http://itleader2.sk8.china868.com/blog/20260918-585.shtml
+</p>
+
+<h3>极壳全下肢外骨骼Halo亮相外滩大会，计划11月起陆续交付</h3>
+<p>
+ | 来源: http://www.bj-cst.com/blog/20260918-185.shtml
+</p>
+
+<h3>作为重组计划的一部分，汇丰将在德国裁减逾300个岗位</h3>
+<p>
+ | 来源: http://www.viger.cn/blog/20260918-103.shtml
+</p>
+
+<h3>亚振家居：上海亚振投资有限公司拟减持公司不超过3.00%股份</h3>
+<p>
+ | 来源: http://www.fstpzz.com/blog/20260918-293.shtml
+</p>
+
+<h3>华脉科技：公司主营无线通信网络及传统光通信产品，数据中心及算力相关领域的收入占比较小</h3>
+<p>
+ | 来源: http://gangguanpe.jk56.org/blog/20260918-801.shtml
+</p>
+
+<h3>宁德时代回应“车间员工过激行为”：不是公司，已报警</h3>
+<p>
+ | 来源: http://au18.cn/blog/20260918-954.shtml
+</p>
+
+<h3>阿里国际站9月采购节：买驱GMV同比增长近20%，美国领涨</h3>
+<p>
+ | 来源: http://bjdjhc.com/blog/20260918-684.shtml
+</p>
+
+<h3>2026年家用服务机器人产业生态技术交流会将于9月23日在杭州召开</h3>
+<p>
+ | 来源: http://dnscnc.com/blog/20260918-704.shtml
+</p>
+
+<h3>精华制药：股票交易异常波动，涨幅偏离值累计超过20%</h3>
+<p>
+ | 来源: http://cdn.au08.cn/blog/20260918-169.shtml
+</p>
+
+<h3>傅俊已任上海静安区人大常委会党组书记</h3>
+<p>
+ | 来源: http://www.bentuhang.com/blog/20260918-141.shtml
+</p>
+
+<h3>奥瑞金：上海原龙及一致行动人增持1147.45万股触及1%整数倍</h3>
+<p>
+ | 来源: http://www.xinnet.top/blog/20260918-800.shtml
+</p>
+
+<h3>豪江智能：南京福豪减持0.8776%股份，减持计划提前终止</h3>
+<p>
+ | 来源: http://m.migun.net.cn/blog/20260918-302.shtml
+</p>
+
+<h3>菲律宾防长收到阐述中方南海立场便条后指责中国“霸凌”，外交部回应</h3>
+<p>
+ | 来源: http://feishui.37ix.com.cn/blog/20260918-506.shtml
+</p>
+
+<h3>ST龙元：宁波中院决定对公司进行预重整，期间六个月</h3>
+<p>
+ | 来源: http://www.china-thun.com/blog/20260918-502.shtml
+</p>
+
+<h3>腾景科技：上海年光元、上海年启立完成询价转让242万股</h3>
+<p>
+ | 来源: http://wap.jk56.org/blog/20260918-430.shtml
+</p>
+
+<h3>湖南黄金：重大资产重组获得湖南省国资委批复</h3>
+<p>
+ | 来源: http://www.hdhc.com.cn/blog/20260918-416.shtml
+</p>
+
+<h3>中化装备：公司完成益阳橡机、北化机100%股权过户</h3>
+<p>
+ | 来源: http://www.khxxsz.com/blog/20260918-169.shtml
+</p>
+
+<h3>招商蛇口：2026年8月签约销售面积38.89万平方米，金额157.12亿元</h3>
+<p>
+ | 来源: http://XJppegjx.sk7.china868.com/blog/20260918-162.shtml
+</p>
+
+<h3>南向资金今日净买入37.20亿港元 百度集团-W获净买入居前</h3>
+<p>
+ | 来源: http://metfin.com.hk/blog/20260918-255.shtml
+</p>
+
+<h3>中国能建：子公司中标64.4326亿元EPC总承包项目</h3>
+<p>
+ | 来源: http://www.cnc.js.cn/blog/20260918-856.shtml
+</p>
+
+<h3>普洛药业：子公司的头孢托仑匹酯获得化学原料药上市申请批准通知书</h3>
+<p>
+ | 来源: http://imsilicon.com/blog/20260918-655.shtml
+</p>
+
+<h3>恒瑞医药：子公司福建盛迪的瑞普泊肽注射液上市许可申请获受理</h3>
+<p>
+ | 来源: http://www.dlsccs.com/blog/20260918-555.shtml
+</p>
+
+<h3>骑士乳业：包头骑士拟向中正康源增资7300万元</h3>
+<p>
+ | 来源: http://rcmodels.cn/blog/20260918-405.shtml
+</p>
+
+<h3>*ST顾地：法院查封房产，申请保全2.42亿元</h3>
+<p>
+ | 来源: http://XJd41i6w.sk7.china868.com/blog/20260918-428.shtml
+</p>
+
+<h3>众泰汽车：全新A0级车型进入批量试制阶段，目前尚未形成销售</h3>
+<p>
+ | 来源: http://kanjinzhaowang.com/blog/20260918-206.shtml
+</p>
+
+<h3>福蓉科技：2026年度定增获证监会注册批复</h3>
+<p>
+ | 来源: http://www.2738128.com/blog/20260918-984.shtml
+</p>
+
+<h3>国际传媒港“金盒子”远程技术制作中心在沪正式启用</h3>
+<p>
+ | 来源: http://www.mirbs.cn/blog/20260918-400.shtml
+</p>
+
+<h3>ST百灵：1209.69万股回购股份注销完成，涉及1亿元</h3>
+<p>
+ | 来源: http://yanglaocz.au18.cn/blog/20260918-207.shtml
+</p>
+
+<h3>仁智股份：陈泽虹等19.51%股份转让及控制权拟变更终止</h3>
+<p>
+ | 来源: http://bjtmhy.sk8.china868.com/blog/20260918-893.shtml
+</p>
+
+<h3>ST百灵：姜伟拟被罚并采取5年证券市场禁入措施</h3>
+<p>
+ | 来源: http://www.dichel.com/blog/20260918-925.shtml
+</p>
+
+<h3>海底捞：控股股东集团成员SP NP Ltd.减持4.65%股份</h3>
+<p>
+ | 来源: http://tongfenggz.au18.cn/blog/20260918-436.shtml
+</p>
+
+<h3>世卫组织：刚果（金）埃博拉疫情病床和人手严重不足</h3>
+<p>
+ | 来源: http://www.yihuiforwarding.com/blog/20260918-427.shtml
+</p>
+
+<h3>沐曦股份：9月17日起1397万股限售股上市流通</h3>
+<p>
+ | 来源: http://hulan.au08.cn/blog/20260918-771.shtml
+</p>
+
+<h3>安井食品：拟投资设立印度尼西亚合资公司</h3>
+<p>
+ | 来源: http://www.cspmc.com.cn/blog/20260918-307.shtml
+</p>
+
+<h3>上海亚虹：控股股东筹划控制权变更，2026年9月10日停牌</h3>
+<p>
+ | 来源: http://tongfengxx.au18.cn/blog/20260918-947.shtml
+</p>
+
+<h3>支持BT.2020及深红光的新型高端屏幕出货量增加，OPPO Find X10系列率先量产</h3>
+<p>
+ | 来源: http://www.boitown.com/blog/20260918-512.shtml
+</p>
+
+<h3>摩根大通（JPMorgan）对中国平安的多头持仓比例增至7.77%</h3>
+<p>
+ | 来源: http://yanglaojdz.au18.cn/blog/20260918-711.shtml
+</p>
+
+<h3>摩根大通（JPMorgan）对中兴通讯的多头持仓比例增至6.25%</h3>
+<p>
+ | 来源: http://www.shannaisi.cn/blog/20260918-339.shtml
+</p>
+
+<h3>摩根士丹利对中际旭创的多头持仓比例降至4.86%</h3>
+<p>
+ | 来源: http://yanglaogz.au18.cn/blog/20260918-419.shtml
+</p>
+
+<h3>摩根大通（JPMorgan）对再鼎医药的多头持仓比例降至10.8%</h3>
+<p>
+ | 来源: http://tuogun.07858.net/blog/20260918-258.shtml
+</p>
+
+<h3>高盛对中际旭创的多头持仓比例降至4.99%</h3>
+<p>
+ | 来源: http://yushui.au08.cn/blog/20260918-118.shtml
+</p>
+
+<h3>摩根大通（JPMorgan）对哔哩哔哩-W的多头持仓比例增至16.47%</h3>
+<p>
+ | 来源: http://mojusl.37ix.com.cn/blog/20260918-497.shtml
+</p>
+
+<h3>摩根士丹利对哔哩哔哩-W的多头持仓比例增至12.44%</h3>
+<p>
+ | 来源: http://tongfoxiang.89ix.com/blog/20260918-809.shtml
+</p>
+
+<h3>摩根大通（JPMorgan）对国泰航空的多头持仓比例降至10.51%</h3>
+<p>
+ | 来源: http://hongming-auto.com/blog/20260918-727.shtml
+</p>
+
+<h3>高盛对哔哩哔哩-W的多头持仓比例增至9.62%</h3>
+<p>
+ | 来源: http://qixinwangtech.com/blog/20260918-643.shtml
+</p>
+
+<h3>摩根士丹利对国泰航空的多头持仓比例降至1.61%</h3>
+<p>
+ | 来源: http://www.hantec.com.cn/blog/20260918-189.shtml
+</p>
+
+<h3>摩根大通（JPMorgan）对宁德时代的多头持仓比例增至7.51%</h3>
+<p>
+ | 来源: http://bjwtht.sk7.china868.com/blog/20260918-470.shtml
+</p>
+
+<h3>浙数文化：受让容腾二号基金2.2843%份额完成</h3>
+<p>
+ | 来源: http://zhidaijil.37ix.com.cn/blog/20260918-399.shtml
+</p>
+
+<h3>摩根大通（JPMorgan）对小鹏集团-W的多头持仓比例增至5.41%</h3>
+<p>
+ | 来源: http://zyl100.com/blog/20260918-490.shtml
+</p>
+
+<h3>摩根大通（JPMorgan）对新华保险的多头持仓比例增至5.23%</h3>
+<p>
+ | 来源: http://www.dongguantang.com/blog/20260918-184.shtml
+</p>
+
+<h3>摩根大通（JPMorgan）对快手-W的多头持仓比例增至5.78%</h3>
+<p>
+ | 来源: http://www.ynwax.com/blog/20260918-185.shtml
+</p>
+
+<h3>摩根大通（JPMorgan）对比亚迪股份的多头持仓比例增至5.23%</h3>
+<p>
+ | 来源: http://xyzy.zzhddz.com/blog/20260918-533.shtml
+</p>

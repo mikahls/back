@@ -1,0 +1,502 @@
+<h1> AI Builders Digest 今日热点快报</h1>
+<p><strong>2026年09月19日 21时38分16秒(UTC+8)</strong></p>
+<hr>
+<h3>弹珠高手集结！重温童年回忆，刮刮乐新游戏“超级弹珠”好运上市！</h3>
+<p>
+ | 来源: http://www.hx-sunshine.com/blog/20260918-708.shtml
+</p>
+
+<h3>壹基金2025年度报告，1100家社会组织和29万志愿者共同书写公益答卷</h3>
+<p>
+ | 来源: http://en.chinese-green.com/blog/20260918-759.shtml
+</p>
+
+<h3>ESG品牌用户认知100强行业分布与行业榜</h3>
+<p>
+ | 来源: http://ocrvogue.com/blog/20260918-362.shtml
+</p>
+
+<h3>点亮青年成长梦想 星光计划走进湖湘两校</h3>
+<p>
+ | 来源: http://imsilicon.com/blog/20260918-655.shtml
+</p>
+
+<h3>春风送暖 光明相伴｜4・20 上海和平眼科医院党建引领 南京路眼健康公益服务</h3>
+<p>
+ | 来源: http://yanglaojdz.au18.cn/blog/20260918-711.shtml
+</p>
+
+<h3>雅诗兰黛集团“粉红丝带”乳腺健康校园行2026年首站 走进上海外国语大学</h3>
+<p>
+ | 来源: http://www.nbbest-future.com/blog/20260918-390.shtml
+</p>
+
+<h3>都市丽人携手中国社会福利基金会再献爱心，向江西莲花县捐赠万件内衣</h3>
+<p>
+ | 来源: http://mojugg.37ix.com.cn/blog/20260918-776.shtml
+</p>
+
+<h3>规范提质强根基 联农兴农促振兴 农民合作社高质量发展大会在成都举行</h3>
+<p>
+ | 来源: http://gaiban.au08.cn/blog/20260918-703.shtml
+</p>
+
+<h3>“身心同频，悦动不停” 2026青少年赋能计划在京启动</h3>
+<p>
+ | 来源: http://www.hnyimei.com/blog/20260918-572.shtml
+</p>
+
+<h3>超六成受访者曾遭求学或职场障碍，首部1型糖尿病社会权利调查报告在京发布</h3>
+<p>
+ | 来源: http://www.hnxtgl.com/blog/20260918-522.shtml
+</p>
+
+<h3>太行林下生金：武乡胡庄绘就乡村振兴新画卷</h3>
+<p>
+ | 来源: http://peixun.sk7.china868.com/blog/20260918-430.shtml
+</p>
+
+<h3>韩红基金会“自在少年——青少年心理健康展览”在杭州开幕</h3>
+<p>
+ | 来源: http://hygl.sxsslgcxh.com/blog/20260918-835.shtml
+</p>
+
+<h3>深圳这场公益跑 跑出了金融温度</h3>
+<p>
+ | 来源: http://www.bentuhang.com/blog/20260918-141.shtml
+</p>
+
+<h3>2026年度IBBY-iRead爱阅人物奖获奖人正式公布</h3>
+<p>
+ | 来源: http://crm.vigorephoto.com/blog/20260918-572.shtml
+</p>
+
+<h3>图集｜凤凰网“益童计划”走进岱山为300余名海岛少年免费体检</h3>
+<p>
+ | 来源: http://www.jinshuai.com/blog/20260918-889.shtml
+</p>
+
+<h3>星无际 艺有光 | 2026“星世界”艺术共创公益活动在江门举办</h3>
+<p>
+ | 来源: http://www.k-wah.com.cn/blog/20260918-635.shtml
+</p>
+
+<h3>从转型升级迈向高质量发展 中国乡村发展基金会发布2025年度报告</h3>
+<p>
+ | 来源: http://gangguanpe.jk56.org/blog/20260918-801.shtml
+</p>
+
+<h3>2026年ITF国际网球大师赛MT400尚东杯北京昌平站5月开赛 赛事能级全面升级</h3>
+<p>
+ | 来源: http://crmn.baixueedu.com/blog/20260918-996.shtml
+</p>
+
+<h3>涂磊温情探访“星星的孩子”：聚焦大龄群体，破解“星朋友”的困局</h3>
+<p>
+ | 来源: http://www.grandasiametal.com/blog/20260918-909.shtml
+</p>
+
+<h3>善意藏在日常里——第二届“新新公益生活节”温暖落幕</h3>
+<p>
+ | 来源: http://www.estarpack.com/blog/20260918-278.shtml
+</p>
+
+<h3>总价值超2400万元！韩红基金会“强基健康工程项目”首站走进新疆和田</h3>
+<p>
+ | 来源: http://bjtcpip.com/blog/20260918-409.shtml
+</p>
+
+<h3>母亲节丨张德芬：以成长力量相伴，让爱与陪伴照亮女性人生之路，致敬了不起的母亲</h3>
+<p>
+ | 来源: http://www.sond.com.cn/blog/20260918-484.shtml
+</p>
+
+<h3>聚焦教师队伍建设，北京字节跳动公益基金会“星星计划”为孤独症儿童点亮前行路</h3>
+<p>
+ | 来源: http://www.xinnet.top/blog/20260918-800.shtml
+</p>
+
+<h3>赋能女性心理成长｜灵动生活「发光者计划」南京站启幕，解锁内在力量与人生自由</h3>
+<p>
+ | 来源: http://yushui.au08.cn/blog/20260918-118.shtml
+</p>
+
+<h3>凝时能量，踏雪而来：雅娜薇图于沪上启幕金臻凝时系列，定义东方奢养新范式</h3>
+<p>
+ | 来源: http://www.lntyhf.com/blog/20260918-153.shtml
+</p>
+
+<h3>毛里求斯首位女总统阿米娜·古里布·法基姆：身处不确定的世界，女性力量正成为推动可持续发展的关键引擎</h3>
+<p>
+ | 来源: http://guandaoc.jk56.org/blog/20260918-849.shtml
+</p>
+
+<h3>亚太杰出女性联合会首席产业专家陈高峰：女性天生是AA制专家，可以让社会更加可持续</h3>
+<p>
+ | 来源: http://tongguanjian.jk56.org/blog/20260918-115.shtml
+</p>
+
+<h3>亚太杰出女性联合会主席王曼郦：构建未来国际女性友好共同体，推动全球经济发展</h3>
+<p>
+ | 来源: http://gmcccc.cn/blog/20260918-739.shtml
+</p>
+
+<h3>凤凰网池小燕：AI时代，别让算法把偏见写进未来</h3>
+<p>
+ | 来源: http://xiangshengzhijia.com/blog/20260918-120.shtml
+</p>
+
+<h3>全球女性就业指数创始人芭芭拉·卢茨：如果今天女性在领导层中缺席，她们也将缺席于明天的算法，这将让所有人付出代价</h3>
+<p>
+ | 来源: http://www.tjhhgl.com/blog/20260918-261.shtml
+</p>
+
+<h3>联合国系统驻华协调员常启德：当女性崛起时，所有人都会蓬勃发展</h3>
+<p>
+ | 来源: http://XJfcksp9.sk8.china868.com/blog/20260918-204.shtml
+</p>
+
+<h3>推动体面工作与性别包容型政策：联合国妇女地位委员会第六十九届会议高级别边会在北京成功举办</h3>
+<p>
+ | 来源: http://isri-shuangdi.com/blog/20260918-904.shtml
+</p>
+
+<h3>当他们见到云南大山里的孩子们，他们说……</h3>
+<p>
+ | 来源: http://www.thuni-h.com/blog/20260918-532.shtml
+</p>
+
+<h3>万物皆好事·一起坐‘好’车”公益大巴主题活动举办</h3>
+<p>
+ | 来源: http://autoweb.sk8.china868.com/blog/20260918-756.shtml
+</p>
+
+<h3>赴一场久久之约，把善意逛进日常</h3>
+<p>
+ | 来源: http://www.sypdsl.com/blog/20260918-250.shtml
+</p>
+
+<h3>5000次生命接力，医生为“神队友”春晖妈妈点赞｜医师节特别报道</h3>
+<p>
+ | 来源: http://vjttek.com/blog/20260918-619.shtml
+</p>
+
+<h3>共建应急保障力量 “星驰行动”应急机制正式发布</h3>
+<p>
+ | 来源: http://www.yx-gas.com/blog/20260918-675.shtml
+</p>
+
+<h3>“情暖龙福・巧手献八一”关爱退役军人活动举办</h3>
+<p>
+ | 来源: http://kongyajicz.au18.cn/blog/20260918-299.shtml
+</p>
+
+<h3>农业农村部农村创业服务提升行动专题培训在佛山开班</h3>
+<p>
+ | 来源: http://migun.net.cn/blog/20260918-404.shtml
+</p>
+
+<h3>全方位守护成长 “很高兴愈见你”关爱儿童青少年身心健康公益活动再赴高原</h3>
+<p>
+ | 来源: http://www.hbthunder.com/blog/20260918-394.shtml
+</p>
+
+<h3>第24届庆祝世界渐冻人日关爱活动在上海举行</h3>
+<p>
+ | 来源: http://www.xinghualou.net.cn/blog/20260918-330.shtml
+</p>
+
+<h3>汇聚爱心 托举希望 中国儿基会“六一”系列活动全方位护航少年儿童成长</h3>
+<p>
+ | 来源: http://kongyajisq.au18.cn/blog/20260918-500.shtml
+</p>
+
+<h3>美育暖彝乡 “春蕾梦想合唱团”专家示范课走进四川凉山</h3>
+<p>
+ | 来源: http://www.lyreclinerparts.com/blog/20260918-135.shtml
+</p>
+
+<h3>护航少年儿童向阳成长 儿童关成长项目走进云南楚雄三县</h3>
+<p>
+ | 来源: http://sxmi.sk7.china868.com/blog/20260918-526.shtml
+</p>
+
+<h3>2026年壹基金蓝色行动开启，携手各界共筑孤独症群体有爱无碍社区</h3>
+<p>
+ | 来源: http://www.2738128.com/blog/20260918-869.shtml
+</p>
+
+<h3>女性影响力大赏</h3>
+<p>
+ | 来源: http://www.jxypm.com/blog/20260918-318.shtml
+</p>
+
+<h3>凤凰网国际大健康峰会</h3>
+<p>
+ | 来源: http://kakou.37ix.com.cn/blog/20260918-360.shtml
+</p>
+
+<h3>设计下午茶</h3>
+<p>
+ | 来源: http://www.lvdu.com/blog/20260918-727.shtml
+</p>
+
+<h3>新品见面汇</h3>
+<p>
+ | 来源: http://hnjtyjz.com/blog/20260918-200.shtml
+</p>
+
+<h3>家居双11</h3>
+<p>
+ | 来源: http://www.bdxlzx.com/blog/20260918-820.shtml
+</p>
+
+<h3>深圳家居设计周</h3>
+<p>
+ | 来源: http://vrtop888.sk7.china868.com/blog/20260918-349.shtml
+</p>
+
+<h3>165㎡简约美式风，打造轻松且舒适的三口之家</h3>
+<p>
+ | 来源: http://www.ljmagnet.com/blog/20260918-679.shtml
+</p>
+
+<h3>存管占比82.66%!徐州248户家庭把2360万装修款“锁”进圣都</h3>
+<p>
+ | 来源: http://zhicao.au08.cn/blog/20260918-113.shtml
+</p>
+
+<h3>南京75㎡极品学区房：走路上学闹中取静，还变出日式庭院？</h3>
+<p>
+ | 来源: http://www.finermed.com/blog/20260918-928.shtml
+</p>
+
+<h3>玄关收纳还在瞎折腾？这些超强攻略，看完恨不得重装一遍</h3>
+<p>
+ | 来源: http://www.viger.cn/blog/20260918-103.shtml
+</p>
+
+<h3>你家还在装简约风？中古风又火了！3招教你打造复古又实用的家！</h3>
+<p>
+ | 来源: http://www.hzdingzhi.cn/blog/20260918-427.shtml
+</p>
+
+<h3>深圳110㎡非典型学区房:把主卧留给孩子</h3>
+<p>
+ | 来源: http://www.lianfengfeiye.com/blog/20260918-408.shtml
+</p>
+
+<h3>时下最流行的7种不同风格的布艺搭配</h3>
+<p>
+ | 来源: http://www.boitown.com/blog/20260918-512.shtml
+</p>
+
+<h3>避世又治愈，老木新生的空间美学太上头了！</h3>
+<p>
+ | 来源: http://hzhuiming.com/blog/20260918-875.shtml
+</p>
+
+<h3>厨房改造必学！4个小技巧让厨房秒变收纳大师</h3>
+<p>
+ | 来源: http://www.loadingarm.cn/blog/20260918-556.shtml
+</p>
+
+<h3>34㎡逆天改造！双卧室+衣帽间竟不拥挤？小户型教科书来了</h3>
+<p>
+ | 来源: http://tongfengzk.au18.cn/blog/20260918-224.shtml
+</p>
+
+<h3>90后独居女生的「买房标准」：落地窗装下一整个帝都CBD</h3>
+<p>
+ | 来源: http://www.norta.cn/blog/20260918-403.shtml
+</p>
+
+<h3>140㎡美式四居室家装案例，用文化打造的电视墙端庄优雅，复古大气</h3>
+<p>
+ | 来源: http://www.kg-chn.com/blog/20260918-570.shtml
+</p>
+
+<h3>客厅不装电视机，那就装在卧室里</h3>
+<p>
+ | 来源: http://ass.2003.com.cn/blog/20260918-276.shtml
+</p>
+
+<h3>吊顶这么设计，拒绝千篇一律</h3>
+<p>
+ | 来源: http://www.nankang.com.cn/blog/20260918-518.shtml
+</p>
+
+<h3>2.5m浴室台面空无一物，邻居追着抄作业！</h3>
+<p>
+ | 来源: http://XJtzylmv.sk7.china868.com/blog/20260918-138.shtml
+</p>
+
+<h3>入住新家后，庆幸装修选择了“5不装”，不是误导，而是经验总结</h3>
+<p>
+ | 来源: http://www.lpgtank.com/blog/20260918-925.shtml
+</p>
+
+<h3>装修，天花板只能用白色吗？</h3>
+<p>
+ | 来源: http://abqiang.au08.cn/blog/20260918-336.shtml
+</p>
+
+<h3>这7件小家具，可有可无，却能提升生活品质</h3>
+<p>
+ | 来源: http://static.sk7.china868.com/blog/20260918-312.shtml
+</p>
+
+<h3>一场大风给全国高层敲响警钟！越好看的落地窗越"致命"？</h3>
+<p>
+ | 来源: http://lizhu.au08.cn/blog/20260918-384.shtml
+</p>
+
+<h3>中年夫妻二人的小宅，太厉害了！</h3>
+<p>
+ | 来源: http://bjtcpip.com/blog/20260918-252.shtml
+</p>
+
+<h3>别乱装！厨房开放式 or 封闭式？这7个问题帮你拿主意</h3>
+<p>
+ | 来源: http://xinfei6266.sk8.china868.com/blog/20260918-236.shtml
+</p>
+
+<h3>小户型后悔没装折叠门！这3个空间用它秒变大平层，看完真香！</h3>
+<p>
+ | 来源: http://www.firesleevetec.com/blog/20260918-303.shtml
+</p>
+
+<h3>普通人也会用的空间设计软件，要IPO了</h3>
+<p>
+ | 来源: http://www.5itaiji.com/blog/20260918-774.shtml
+</p>
+
+<h3>2024年智能门锁报告：年轻群体满意度过半；小米、华为挤入前五</h3>
+<p>
+ | 来源: http://www.metfin.com.hk/blog/20260918-364.shtml
+</p>
+
+<h3>贵港少年闯世界：从街头练摊到执掌“立构”全球家居品牌</h3>
+<p>
+ | 来源: http://www.sxoms.cn/blog/20260918-354.shtml
+</p>
+
+<h3>深圳110㎡非典型学区房：把主卧留给孩子，餐厅改成大书房？</h3>
+<p>
+ | 来源: http://sheying.37ix.com.cn/blog/20260918-939.shtml
+</p>
+
+<h3>总额破2.3亿元！圣都整装郑州2000户家庭启用资金存管，让装修付款更安心</h3>
+<p>
+ | 来源: http://jingxiangzixun.com/blog/20260918-364.shtml
+</p>
+
+<h3>西南首座MEGA-E智电绿洲5月28日亮相重庆 红星美凯龙重塑高端电器消费场景</h3>
+<p>
+ | 来源: http://wzjh9999.com/blog/20260918-930.shtml
+</p>
+
+<h3>存量焕新、数智赋能、生态共建：成都家装行业迎来高质量发展新拐点</h3>
+<p>
+ | 来源: http://www.chinanewman.com/blog/20260918-778.shtml
+</p>
+
+<h3>价值重塑：超越豪宅表象，以空间承载家族永续使命</h3>
+<p>
+ | 来源: http://www.yowelt.com/blog/20260918-315.shtml
+</p>
+
+<h3>40岁李多海婚后生活首曝光：无戏可拍，却在中国狂赚100亿，回韩国住46亿豪宅</h3>
+<p>
+ | 来源: http://gloria.anchoryun.com/blog/20260918-903.shtml
+</p>
+
+<h3>难怪越来越多人去掉客厅，看完这位上海人家才明白，真的美观好用</h3>
+<p>
+ | 来源: http://www.tjmbtgt.com/blog/20260918-374.shtml
+</p>
+
+<h3>热带之下的清凉绿洲，占地3300平的大宅，全年几乎不用空调！</h3>
+<p>
+ | 来源: http://hongming-auto.com/blog/20260918-727.shtml
+</p>
+
+<h3>不要电视墙、不吊顶，一户人家60平米小家火了！一进门就被治愈了</h3>
+<p>
+ | 来源: http://bjtmhy.sk8.china868.com/blog/20260918-893.shtml
+</p>
+
+<h3>第二次装修，庆幸坚持了这5个装修决定，入住之后，妙用无穷！</h3>
+<p>
+ | 来源: http://www.cqxingyi.com/blog/20260918-305.shtml
+</p>
+
+<h3>北京向阳而生的88㎡老房，这氛围不输南法度假房？</h3>
+<p>
+ | 来源: http://www.glmckj.cn/blog/20260918-268.shtml
+</p>
+
+<h3>小户型阳台改造神操作！落地窗+观景台，秒变网红打卡地！</h3>
+<p>
+ | 来源: http://tusu.jk56.org/blog/20260918-919.shtml
+</p>
+
+<h3>厨房装修选台面，大理石优雅VS不锈钢耐用，哪个更合你心意？</h3>
+<p>
+ | 来源: http://zheban.au08.cn/blog/20260918-755.shtml
+</p>
+
+<h3>别傻傻买酒柜，在餐桌旁打个柜子，不用1㎡空间，还能收纳！</h3>
+<p>
+ | 来源: http://luyanshi.au08.cn/blog/20260918-350.shtml
+</p>
+
+<h3>极简设计的温度，打造通透静谧的混凝土之家</h3>
+<p>
+ | 来源: http://www.isri-shuangdi.com/blog/20260918-436.shtml
+</p>
+
+<h3>33㎡开间变一居室，玄关、电视墙加分，显大2倍</h3>
+<p>
+ | 来源: http://mssql.china868.com/blog/20260918-319.shtml
+</p>
+
+<h3>摩尔多瓦新古典公寓：大理石密码，细节里的高级感藏不住了</h3>
+<p>
+ | 来源: http://zhidaijil.37ix.com.cn/blog/20260918-399.shtml
+</p>
+
+<h3>92㎡美式家装好了，头一次看见电视墙这么设计的，美翻了</h3>
+<p>
+ | 来源: http://lrjy.com/blog/20260918-901.shtml
+</p>
+
+<h3>现代简约风卧室，简约不简单</h3>
+<p>
+ | 来源: http://fanghulan.37ix.com.cn/blog/20260918-602.shtml
+</p>
+
+<h3>利用10㎡空间设计卡座餐厅，充分利用空间，一点也不浪费</h3>
+<p>
+ | 来源: http://onponder.sk8.china868.com/blog/20260918-507.shtml
+</p>
+
+<h3>160㎡美式装修，将厨房做成中西厨！漂亮实用，老婆很满意</h3>
+<p>
+ | 来源: http://www.cncandle.cn/blog/20260918-118.shtml
+</p>
+
+<h3>我酸了！为什么别人家87㎡小户型，住下一家四口还不拥挤？</h3>
+<p>
+ | 来源: http://tongfengay.au18.cn/blog/20260918-402.shtml
+</p>
+
+<h3>走进清华学霸135㎡的家：容纳一人两猫的“私人梦剧场”</h3>
+<p>
+ | 来源: http://www.hidier.com/blog/20260918-720.shtml
+</p>
+
+<h3>这28款经典的厨房橱柜设计，来了解一下</h3>
+<p>
+ | 来源: http://jiankong.jk56.org/blog/20260918-736.shtml
+</p>
